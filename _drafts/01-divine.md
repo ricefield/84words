@@ -5,7 +5,7 @@ date: 2014-09-10 12:00:00
 categories: word
 ---
 
-**Scriptures** :
+###Scriptures:
 
 Gen. 2:21 And Jehovah God caused a deep sleep to fall upon the man, and he slept; and He took one of his ribs and closed up the flesh in its place. 22 And **Jehovah God built the rib, which He had taken from the man, into a woman and brought her to the man.**
 
@@ -15,9 +15,9 @@ Eph. 5:25 Husbands, love your wives even as Christ also loved the church and gav
 
 Rev. 22:17 And **the Spirit and the bride say, Come!** And let him who hears say, Come! And let him who is thirsty come; let him who wills take the water of life freely.
 
-**Footnotes**** :**
+###Footnotes:
 
-Gen 2:21, note 1 In order to produce a complement for Himself, God first became a man (John 1:14), as typified by God's creation of Adam (Rom. 5:14). Here Adam's deep sleep for the producing of Eve as his wife typifies Christ's death on the cross for the producing of the church as His counterpart (Eph. 5:25-27). **Through Christ's death the divine life within Him was released, and**** through His resurrection His released divine life was imparted into His believers for the constituting of the church (see note 34 ****1**** in John 19). Through such a process God in Christ has been wrought into man with His life and nature so that man can be the same as God in life and nature in order to match Him as His counterpart.**
+Gen 2:21, note 1 In order to produce a complement for Himself, God first became a man (John 1:14), as typified by God's creation of Adam (Rom. 5:14). Here Adam's deep sleep for the producing of Eve as his wife typifies Christ's death on the cross for the producing of the church as His counterpart (Eph. 5:25-27). **Through Christ's death the divine life within Him was released, and**** through His resurrection His released divine life was imparted into His believers for the constituting of the church (see note 34 **1** in John 19). Through such a process God in Christ has been wrought into man with His life and nature so that man can be the same as God in life and nature in order to match Him as His counterpart.**
 
 Eph 5:26, note 1 **Christ's purpose in giving Himself up for the church is to sanctify her, not only separating her to Himself from everything common but also saturating her with His element that she may be His counterpart** . **He accomplishes this by cleansing her by the washing of the water in the word.**
 
@@ -25,7 +25,7 @@ Eph 5:26, note 4 The Greek word denotes an instant word. **The indwelling Christ
 
 Rev 22:17, note 1, par. 2 **The entire revelation of the Bible shows us the love story of a universal couple** . That is, the sovereign Lord, who created the universe and all things, the Triune God—the Father, the Son, and the Spirit—who went through the processes of incarnation, human living, crucifixion, resurrection, and ascension, and who ultimately became the life-giving Spirit, is joined in marriage to the created, redeemed, regenerated, transformed, and glorified tripartite man—composed of spirit, soul, and body—who ultimately constitutes the church, the expression of God. **In the eternity that is without end, by the divine, eternal, and surpassingly glorious life, they will live a life that is the mingling of God and man as one spirit, a life that is superexcellent and that overflows with blessings and joy** .
 
-**Ministry Excerpts**** :**
+###Ministry Excerpts:
 
 **If we enjoy God and partake of the riches of His being, we will be constituted with the divine nature** , becoming the same as God in life and nature but not in the Godhead and expressing Him in all that we are and do. If we partake of God day by day, eventually we will partake of Him unconsciously. We all should be fully saturated with the nature of God. The more we are saturated with God, the more we will express Him. When others contact us, they will see in us the expression of the Triune God. **We may even give off a divine fragrance** .
 
@@ -33,11 +33,11 @@ Rev 22:17, note 1, par. 2 **The entire revelation of the Bible shows us the love
 
 **It is a wonderful fact that as believers we possess the divine nature. The way to enlarge the sphere of the divine nature within us is to take the word of Christ not only by reading but also by praying, singing, psalming, and thanking the Lord (Col. 3:16)** . If the word of Christ is to dwell in us richly, we need to open our entire being and exercise our spirit. Then the word of Christ will enter into us, stir us up, and become mingled with us, causing us to be one with the Lord in an actual and practical way. As a result, the sphere of the divine nature in us will be enlarged. (_Conclusion of the New Testament_, Message 389, pp. 3936-3937)
 
-**Hymns:**
+###Hymns:
 
 _ **This Divine Romance. ss. 1, 3** _
 
-1How could a country girl like me
+(1) How could a country girl like me
 
 Become Your match — Your bride to be?
 
@@ -53,23 +53,25 @@ But You chose me ere the world began
 
 Nothing could change Your plan.
 
-This divine romance
 
-Is My heart's deep plan.
+  This divine romance
 
-I became a lowly man
+  Is My heart's deep plan.
 
-To court My country girl.
+  I became a lowly man
 
-Nothing could deter,
+  To court My country girl.
 
-Nothing can alter
+  Nothing could deter,
 
-My eternal love for her;
+  Nothing can alter
 
-I'll gain My country girl.
+  My eternal love for her;
 
-3As King of kings You became a man,
+  I'll gain My country girl.
+
+ 
+(3) As King of kings You became a man,
 
 You died for me—I've been redeemed,
 
@@ -84,6 +86,8 @@ I now possess Your divinity;
 In life and nature we're the same:
 
 Both human and divine.
+  
+  
 
 In Your love I'm drawn,
 
@@ -100,7 +104,8 @@ In Your name I'm charmed,
 And Your Person captured me,
 
 For I've been kissed by Thee.
-
+  
+  
 4 Lord, in this close sweet fellowship,
 
 Lord, be with me so intimate,
@@ -133,9 +138,10 @@ And Your Person captured me,
 
 For I've been kissed by Thee.
 
+    
 _ **Hymn 841, vv. 1-3, 6** _
 
-1. Thou art all my life, Lord,
+(1) Thou art all my life, Lord,
 
 In me Thou dost live;
 
@@ -151,7 +157,8 @@ By Thy resurrection,
 
 Vict'ry is supplied.
 
-2. Now Thy flowing life, Lord,
+    
+(2) Now Thy flowing life, Lord,
 
 Doth enlighten me,
 
@@ -167,7 +174,8 @@ Leading me to cleansing
 
 And in Thee to stand.
 
-3. Thy anointing Spirit
+    
+(3) Thy anointing Spirit
 
 Me shall permeate,
 
@@ -183,7 +191,8 @@ Till Thy life shall bring me
 
 To maturity.
 
-6. I would cease completely
+    
+(6) I would cease completely
 
 From my efforts vain,
 
@@ -199,4 +208,5 @@ Thy complete expression
 
 Glorifying Thee.
 
+    
 1- Divine
