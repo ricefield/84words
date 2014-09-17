@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Call"
-subheading: "Words that Describe Our Personal Fellowship with the Lord"
+subheading: {{subheading_2}}
 categories: word
 ---
 

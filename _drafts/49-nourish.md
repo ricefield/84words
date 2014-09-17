@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Nourish"
-subheading:
+subheading: {{subheading_2}}
 categories: word
 ---
 

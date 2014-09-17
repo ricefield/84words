@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Gaze"
-subheading:
+subheading: {{subheading_2}}
 categories: word
 ---
 

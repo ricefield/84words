@@ -1,6 +1,6 @@
 # Site settings
-title: Your awesome title
-email: your-email@domain.com
+title: 84 Precious Words
+email: 
 description: > # this means to ignore newlines until "baseurl:"
   Write an awesome description for your new site here. You can edit this
   line in _config.yml. It will appear in your document head meta (for
@@ -10,5 +10,7 @@ url: "http://yourdomain.com" # the base hostname & protocol for your site
 twitter_username: jekyllrb
 github_username:  jekyll
 
+subheading_1: Words that Define Our Personal Relationship with the Lord
+subheading_2: Hey there! #Words that Describe Our Personal Fellowship with the Lord
 # Build settings
 markdown: kramdown

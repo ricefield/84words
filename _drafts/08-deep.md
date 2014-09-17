@@ -1,8 +1,7 @@
 ---
 layout: post
 title: "Deep"
-subheading: "Words that Define Our Personal Relationship with the Lord"
-
+subheading: {{site.subheading_1}}
 categories: word
 ---
 

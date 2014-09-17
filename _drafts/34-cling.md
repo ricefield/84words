@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Cling"
-subheading:
+subheading: {{subheading_2}}
 categories: word
 ---
 
