@@ -1,7 +1,8 @@
 ---
 layout: post
 title: "Choose"
-date: 2014-09-10 12:00:00
+subheading: "Words that Describe Our Personal Fellowship with the Lord"
+
 categories: word
 ---
 

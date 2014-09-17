@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Cling"
-date: 2014-09-10 12:00:00
+subheading:
 categories: word
 ---
 

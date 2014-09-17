@@ -47,7 +47,7 @@ _(Approaching)_
 
 ##GROUP THREE##
 
-###Words that Describe Our Personal Fellowship with the Lord###
+###Words that Describe Our Personal Fellowship with the Lord
 
 _(Beholding)_
 
