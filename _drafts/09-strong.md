@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Strong"
-subheading: {{site.subheading_1}}
+title: Strong
+subheading: Words that Define Our Personal Relationship with the Lord
 categories: word
 ---
 

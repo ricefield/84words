@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Calm"
-subheading: {{subheading_2}}
+title: Calm
 categories: word
 ---
 

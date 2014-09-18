@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Memorable"
-subheading: {{site.subheading_1}}
+title: Memorable
+subheading: Words that Define Our Personal Relationship with the Lord
 categories: word
 ---
 

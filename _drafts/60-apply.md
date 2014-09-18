@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Apply"
-subheading: {{subheading_2}}
+title: Apply
 categories: word
 ---
 

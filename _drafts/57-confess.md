@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Confess"
-subheading: {{subheading_2}}
+title: Confess
 categories: word
 ---
 

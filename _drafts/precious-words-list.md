@@ -1,6 +1,6 @@
 ---
-layout: main
-title: "84 Precious Words"
+layout: page
+title: 84 Precious Words
 date: 2014-09-10 12:00:00
 categories: general
 ---
@@ -35,8 +35,8 @@ _(Approaching)_
 3. Choose
 4. Believe
 5. Come
-6. Turn (Return)
-7. Enter (Enter within the veil)
+6. Turn (return)
+7. Enter (enter within the veil)
 8. Stop
 9. Calm
 10. Open
@@ -75,7 +75,7 @@ _(Assimilating)_
 1. Call
 2. Groan
 3. Cry
-4. Consider _(consider Him)
+4. Consider (consider Him)
 5. Treasure
 6. Taste
 7. Nourish

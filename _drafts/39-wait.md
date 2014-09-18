@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Wait"
-subheading: {{subheading_2}}
+title: Wait
 categories: word
 ---
 

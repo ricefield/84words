@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Masticate"
-subheading: {{subheading_2}}
+title: Masticate
 categories: word
 ---
 

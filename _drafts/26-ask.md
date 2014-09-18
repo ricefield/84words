@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Ask"
-subheading: {{subheading_2}}
+title: Ask
 categories: word
 ---
 

@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Thank"
-subheading: {{subheading_2}}
+title: Thank
 categories: word
 ---
 

@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Learn"
-subheading: {{subheading_2}}
+title: Learn
 categories: word
 ---
 

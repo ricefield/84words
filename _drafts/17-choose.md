@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Choose"
-subheading: {{subheading_2}}
+title: Choose
 categories: word
 ---
 

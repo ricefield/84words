@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Entrust"
-subheading: {{subheading_2}}
+title: Entrust
 categories: word
 ---
 

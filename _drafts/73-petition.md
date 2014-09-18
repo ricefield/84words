@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Petition"
-subheading: {{subheading_2}}
+title: Petition
 categories: word
 ---
 

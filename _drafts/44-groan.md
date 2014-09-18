@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Groan"
-subheading: {{subheading_2}}
+title: Groan
 categories: word
 ---
 

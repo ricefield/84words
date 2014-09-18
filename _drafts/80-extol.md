@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Extol"
-subheading: {{subheading_2}}
+title: Extol
 categories: word
 ---
 

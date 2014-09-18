@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Repent"
-subheading: {{subheading_2}}
+title: Repent
 categories: word
 ---
 

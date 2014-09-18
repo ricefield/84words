@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Intimate"
-subheading: {{site.subheading_1}}
+title: Intimate
+subheading: Words that Define Our Personal Relationship with the Lord
 categories: word
 ---
 

@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Linger"
-subheading: {{subheading_2}}
+title: Linger
 categories: word
 ---
 

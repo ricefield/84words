@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Intercede"
-subheading: {{subheading_2}}
+title: Intercede
 categories: word
 ---
 

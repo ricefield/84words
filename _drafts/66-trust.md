@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Trust"
-subheading: {{subheading_2}}
+title: Trust
 categories: word
 ---
 

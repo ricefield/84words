@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Need"
-subheading: {{subheading_2}}
+title: Need
 categories: word
 ---
 

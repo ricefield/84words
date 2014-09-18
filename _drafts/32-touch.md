@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Touch"
-subheading: {{subheading_2}}
+title: Touch
 categories: word
 ---
 

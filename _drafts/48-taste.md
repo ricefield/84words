@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Taste"
-subheading: {{subheading_2}}
+title: Taste
 categories: word
 ---
 

@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Meditate"
-subheading: {{subheading_2}}
+title: Meditate
 categories: word
 ---
 

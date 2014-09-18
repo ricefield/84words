@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Consider"
-subheading: {{subheading_2}}
+title: Consider
+subheading: "consider Him"
 categories: word
 ---
 

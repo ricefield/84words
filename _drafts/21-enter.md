@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Enter"
-subheading: {{subheading_2}}
+title: Enter
+subheading: "enter within the veil"
 categories: word
 ---
 

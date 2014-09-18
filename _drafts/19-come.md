@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Come"
-subheading: {{subheading_2}}
+title: Come
 categories: word
 ---
 

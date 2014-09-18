@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Join"
-subheading: {{subheading_2}}
+title: Join
+subheading: "joining ourselves to Him"
 categories: word
 ---
 

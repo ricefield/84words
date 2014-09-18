@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Obey"
-subheading: {{subheading_2}}
+title: Obey
 categories: word
 ---
 

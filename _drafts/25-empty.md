@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Empty"
-subheading: {{subheading_2}}
+title: Empty
 categories: word
 ---
 

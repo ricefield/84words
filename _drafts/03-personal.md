@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Personal"
-subheading: {{site.subheading_1}}
+title: Personal
+subheading: Words that Define Our Personal Relationship with the Lord
 categories: word
 ---
 

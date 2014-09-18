@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Remember"
-subheading: {{subheading_2}}
+title: Remember
 categories: word
 ---
 

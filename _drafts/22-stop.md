@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Stop"
-subheading: {{subheading_2}}
+title: Stop
 categories: word
 ---
 

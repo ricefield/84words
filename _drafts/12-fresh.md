@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Fresh"
-subheading: {{site.subheading_1}}
+title: Fresh
+subheading: Words that Define Our Personal Relationship with the Lord
 categories: word
 ---
 

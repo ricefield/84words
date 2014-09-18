@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Digest"
-subheading: {{subheading_2}}
+title: Digest
 categories: word
 ---
 

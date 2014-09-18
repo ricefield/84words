@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Offer"
-subheading: {{subheading_2}}
+title: Offer
 categories: word
 ---
 

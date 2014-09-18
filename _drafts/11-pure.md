@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Pure"
-subheading: {{site.subheading_1}}
+title: Pure
+subheading: Words that Define Our Personal Relationship with the Lord
 categories: word
 ---
 

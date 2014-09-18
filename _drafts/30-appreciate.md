@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Appreciate"
-subheading: {{subheading_2}}
+title: Appreciate
 categories: word
 ---
 

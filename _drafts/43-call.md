@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Call"
-subheading: {{subheading_2}}
+title: Call
 categories: word
 ---
 

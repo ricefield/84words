@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Entreat"
-subheading: {{subheading_2}}
+title: Entreat
 categories: word
 ---
 

@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Believe"
-subheading: {{subheading_2}}
+title: Believe
 categories: word
 ---
 

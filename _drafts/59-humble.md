@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Humble"
-subheading: {{subheading_2}}
+title: Humble
 categories: word
 ---
 

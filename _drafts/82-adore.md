@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Adore"
-subheading: {{subheading_2}}
+title: Adore
+subheading: "Oh come let us adore Him"
 categories: word
 ---
 

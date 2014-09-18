@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Yearn"
-subheading: {{subheading_2}}
+title: Yearn
 categories: word
 ---
 

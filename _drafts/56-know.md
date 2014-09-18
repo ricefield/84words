@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Know"
-subheading: {{subheading_2}}
+title: Know
+subheading: "I may know Him"
 categories: word
 ---
 

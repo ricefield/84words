@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Muse"
-subheading: {{subheading_2}}
+title: Muse
 categories: word
 ---
 

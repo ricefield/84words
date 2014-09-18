@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Cast"
-subheading: {{subheading_2}}
+title: Cast
 categories: word
 ---
 

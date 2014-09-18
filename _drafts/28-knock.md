@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Knock"
-subheading: {{subheading_2}}
+title: Knock
 categories: word
 ---
 

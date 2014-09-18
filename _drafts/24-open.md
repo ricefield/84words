@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Open"
-subheading: {{subheading_2}}
+title: Open
 categories: word
 ---
 

@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Seek"
-subheading: {{subheading_2}}
+title: Seek
 categories: word
 ---
 

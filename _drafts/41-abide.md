@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Abide"
-subheading: {{subheading_2}}
+title: Abide
+subheading: "dwell and remain"
 categories: word
 ---
 

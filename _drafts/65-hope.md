@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Hope"
-subheading: {{subheading_2}}
+title: Hope
 categories: word
 ---
 

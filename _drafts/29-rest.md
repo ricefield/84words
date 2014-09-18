@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Rest"
-subheading: {{subheading_2}}
+title: Rest
 categories: word
 ---
 

@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Consecrate"
-subheading: {{subheading_2}}
+title: Consecrate
 categories: word
 ---
 

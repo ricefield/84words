@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Keep"
-subheading: {{subheading_2}}
+title: Keep
 categories: word
 ---
 

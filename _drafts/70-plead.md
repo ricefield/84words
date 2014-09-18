@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Plead"
-subheading: {{subheading_2}}
+title: Plead
 categories: word
 ---
 

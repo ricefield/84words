@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Draw"
-subheading: {{subheading_2}}
+title: Draw
 categories: word
 ---
 

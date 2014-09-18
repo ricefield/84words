@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Worship"
-subheading: {{subheading_2}}
+title: Worship
 categories: word
 ---
 

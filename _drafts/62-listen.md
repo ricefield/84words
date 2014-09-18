@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Listen"
-subheading: {{subheading_2}}
+title: Listen
 categories: word
 ---
 

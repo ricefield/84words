@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Inquire"
-subheading: {{subheading_2}}
+title: Inquire
 categories: word
 ---
 
