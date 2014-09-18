@@ -10,10 +10,13 @@ url: "http://yourdomain.com" # the base hostname & protocol for your site
 twitter_username: jekyllrb
 github_username:  jekyll
 exclude: ['Gemfile', 'Gemfile.lock', 'README.md']
-subheading_1: Words that Define Our Personal Relationship with the Lord
 
 defaults:
   -
-    subheading: Words that Describe Our Personal Fellowship with the Lord
+    scope:
+      path: ""
+      type: "drafts"
+    values:
+      category-heading: Words that Describe Our Personal Fellowship with the Lord
 # Build settings
 markdown: kramdown
