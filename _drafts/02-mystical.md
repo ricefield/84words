@@ -5,7 +5,7 @@ subheading: Words that Define Our Personal Relationship with the Lord
 categories: word
 ---
 
-_Mysterious _
+_Mysterious_
 
 **Scripture Reading** :
 
