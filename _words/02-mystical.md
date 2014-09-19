@@ -1,7 +1,6 @@
 ---
 layout: word
 title: Mystical
-subheading: Words that Define Our Personal Relationship with the Lord
 categories: word
 ---
 
