@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: word
 title: Consider
 subheading: "consider Him"
 categories: word

@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: word
 title: Exult
 categories: word
 ---

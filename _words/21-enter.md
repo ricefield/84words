@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: word
 title: Enter
 subheading: "enter within the veil"
 categories: word

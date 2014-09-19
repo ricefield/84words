@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: word
 title: Knock
 categories: word
 ---

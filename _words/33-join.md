@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: word
 title: Join
 subheading: "joining ourselves to Him"
 categories: word

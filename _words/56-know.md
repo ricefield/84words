@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: word
 title: Know
 subheading: "I may know Him"
 categories: word

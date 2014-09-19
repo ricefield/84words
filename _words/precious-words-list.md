@@ -1,5 +1,5 @@
 ---
-layout: page
+layout: word
 title: 84 Precious Words
 date: 2014-09-10 12:00:00
 categories: general

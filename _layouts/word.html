@@ -1,0 +1,17 @@
+---
+layout: default
+---
+<div class="word">
+
+  <header class="word-header">
+    <h1 class="word-title">{{ page.title }}</h1> {% unless page.subheading == "" %}<h3>({{page.subheading}})</h3>{% endunless %}
+    <br />
+    <p class="word-meta">{{ page.date | date: "%b %-d, %Y" }}{% if page.author %} • {{ page.author }}{% endif %}{% if page.meta %} • {{ page.meta }}{% endif %}</p>
+  </header>
+
+  <article class="word-content">
+    {{ site.category-heading}}
+    {{ content }}
+  </article>
+
+</div>
