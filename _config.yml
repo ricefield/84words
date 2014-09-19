@@ -10,7 +10,9 @@ url: "http://yourdomain.com" # the base hostname & protocol for your site
 twitter_username: jekyllrb
 github_username:  jekyll
 exclude: ['Gemfile', 'Gemfile.lock', 'README.md']
-
+collections:
+  words:
+    output: true
 defaults:
   -
     scope:
