@@ -1,74 +1,37 @@
 ---
 layout: default
-title: Mainpage
+title: 84 Precious Words
 ---
-<!-- Content
-    ================================================== -->
+
   <div class="top-strip"></div>
   <div class="content">
     <main class="container">
+
     	<div class="row-fluid">
     		<section class="content">
     		  <h1>84 Precious Words</h1>
     		</section>
-    		<ul class="entries">
-    		{% for post in paginator.posts %}
-    		  <li>
-    		    <a href="{{ post.url }}">
-                      <span>{{ post.date | date: "%d %B %Y" }}</span>
-    		        <h3>{{ post.title }}</h3>
-                      <div>{{ post.content |truncatehtml | truncatewords: 30 }}</div>
-    		    </a>
-    		  </li>
-    		{% endfor %}
-    		</ul>
     	</div>
-      <hr>
-      <div id="post-pagination">
-        {% if paginator.previous_page %}
-        <p class="prev">
-          {% if paginator.previous_page == 1 %}
-          <a href="/">Previous</a>
-          {% else %}
-          <a href="/page{{paginator.previous_page}}"> Previous</a>
-          {% endif %}
-        </p>
-        {% else %}
-<!--         <p class="prev disabled">
-          <span>Previous</span>
-        </p> -->
-        {% endif %}
 
-        <ul class="pages">
-          <li class="page">
-            {% if paginator.page == 1 %}
-<!--             <span class="current-page">1</span> -->
-            {% else %}
-            <a href="/">1</a>
-            {% endif %}
-          </li>
+      <h2>Words that define our personal relationship with the Lord</h2>
 
-          {% for count in (2..paginator.total_pages) %}
-          <li class="page">
-            {% if count == paginator.page %}
-            <span class="current-page">{{count}}</span>
-            {% else %}
-            <a href="/page{{count}}">{{count}}</a>
-            {% endif %}
-          </li>
-          {% endfor %}
-        </ul>
+      <div>
+      {% for word in site.words %}
+        <span><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+      {% endfor %}
+    </div>
 
-        {% if paginator.next_page %}
-        <p class="next">
-          <a href="/page{{paginator.next_page}}">Next</a>
-        </p>
-        {% else %}
-<!--         <p class="next disabled">
-          <span>Next</span>
-        </p> -->
-        {% endif %}
-      </div>
+      <h2>Words that describe our personal fellowship with the Lord</h2>
+
+        <h3>Approaching</h3>
+
+        <h3>Beholding</h3>
+
+        <h3>Assimilating</h3>
+
+        <h3>Dealing</h3>
+
+        <h3>Worshipping</h3>
 
     </main>
   </div>
