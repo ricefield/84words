@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Listen
-categories: word
+categories: dealing
 ---
 
 hear

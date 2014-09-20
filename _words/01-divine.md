@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Divine
-categories: word
+categories: first
 ---
 
 ###Scriptures:

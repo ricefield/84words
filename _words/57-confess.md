@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Confess
-categories: word
+categories: dealing
 ---
 
 **Scriptures** :

@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Keep
-categories: word
+categories: assimilating
 ---
 
 guard, hold fast, store up

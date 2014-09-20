@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Intercede
-categories: word
+categories: worshipping
 ---
 
 **Scriptures** :

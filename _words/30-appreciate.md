@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Appreciate
-categories: word
+categories: beholding
 ---
 
 treasure, value, precious

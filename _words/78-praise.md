@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Praise
-categories: word
+categories: worshipping
 ---
 
 glory, celebrate, adore, appreciate

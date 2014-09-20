@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Come
-categories: word
+categories: approaching
 ---
 
 **Scriptures** :

@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Groan
-categories: word
+categories: assimilating
 ---
 
 sigh

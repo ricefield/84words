@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Rejoice
-categories: word
+categories: worshipping
 ---
 
 delight, exult, joy

@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Stop
-categories: word
+categories: approaching
 ---
 
 Cease, silent

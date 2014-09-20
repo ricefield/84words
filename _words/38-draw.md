@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Draw
-categories: word
+categories: beholding
 ---
 
 Draw near, Come Forward

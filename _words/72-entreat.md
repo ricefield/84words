@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Entreat
-categories: word
+categories: worshipping
 ---
 
 implore, beseech

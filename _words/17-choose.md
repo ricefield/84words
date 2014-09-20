@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Choose
-categories: word
+categories: approaching
 ---
 
 decide

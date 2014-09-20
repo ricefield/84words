@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Treasure
-categories: word
+categories: assimilating
 ---
 
 **Scriptures** :

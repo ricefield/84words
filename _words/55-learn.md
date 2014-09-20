@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Learn
-categories: word
+categories: assimilating
 ---
 
 **Scriptures** :

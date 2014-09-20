@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Open
-categories: word
+categories: approaching
 ---
 
 **Scriptures** :

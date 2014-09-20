@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Deep
-categories: word
+categories: first
 ---
 
 **Scriptures** :

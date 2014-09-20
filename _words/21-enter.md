@@ -2,7 +2,7 @@
 layout: word
 title: Enter
 subheading: "Enter within the veil"
-categories: word
+categories: approaching
 ---
 
 **Scriptures** :

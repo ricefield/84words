@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Ask
-categories: word
+categories: approaching
 ---
 
 **Scriptures** :

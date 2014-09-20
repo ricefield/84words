@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Calm
-categories: word
+categories: approaching
 ---
 
 still, tranquil

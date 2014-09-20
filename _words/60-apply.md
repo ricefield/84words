@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Apply
-categories: word
+categories: dealing
 ---
 
 **Scriptures** :

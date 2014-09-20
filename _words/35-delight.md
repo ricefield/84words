@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Delight
-categories: word
+categories: beholding
 ---
 
 take great pleasure or enjoyment

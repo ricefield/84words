@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Desire
-categories: word
+categories: approaching
 ---
 
 long, hunger, thirst, pant

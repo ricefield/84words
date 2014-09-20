@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Private
-categories: word
+categories: first
 ---
 
 **Scriptures** :

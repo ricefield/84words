@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Wait
-categories: word
+categories: beholding
 ---
 
 **Scriptures** :

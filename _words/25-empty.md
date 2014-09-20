@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Empty
-categories: word
+categories: approaching
 ---
 
 poor, unloaded

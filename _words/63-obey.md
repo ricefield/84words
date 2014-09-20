@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Obey
-categories: word
+categories: dealing
 ---
 
 **Scriptures** :

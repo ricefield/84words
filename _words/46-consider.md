@@ -2,7 +2,7 @@
 layout: word
 title: Consider
 subheading: "Consider Him"
-categories: word
+categories: assimilating
 ---
 
 **Scriptures** :

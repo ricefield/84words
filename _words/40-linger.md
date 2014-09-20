@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Linger
-categories: word
+categories: beholding
 ---
 
 remain

@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Taste
-categories: word
+categories: assimilating
 ---
 
 **Scriptures** :

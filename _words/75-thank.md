@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Thank
-categories: word
+categories: worshipping
 ---
 
 **Scriptures** :

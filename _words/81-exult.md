@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Exult
-categories: word
+categories: worshipping
 ---
 
 be beside oneself

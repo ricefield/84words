@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Nourish
-categories: word
+categories: assimilating
 ---
 
 **Scriptures** :

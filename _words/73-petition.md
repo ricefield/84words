@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Petition
-categories: word
+categories: worshipping
 ---
 
 supplicate, beseech

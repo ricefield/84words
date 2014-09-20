@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Repent
-categories: word
+categories: dealing
 ---
 
 **Scriptures** :

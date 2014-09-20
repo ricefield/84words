@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Sing
-categories: word
+categories: worshipping
 ---
 
 **Scriptures** :
