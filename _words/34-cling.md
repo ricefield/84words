@@ -20,7 +20,7 @@ Luke 8:15 But that which is in the good earth, these are those who in a noble an
 
 Phil. 3:12 Not that I have already obtained or am already perfected, but I pursue, if even **I may lay hold of that for which I also have been laid hold of by Christ Jesus** .
 
-**Footnotes**** :**
+## Footnotes** :**
 
 Hab 1:1, note 1, par. 1 **(Habakkuk) Meaning embracing, or clinging to** . The meaning of the prophet's name indicates that in order for sinners to receive God's eternal salvation (2:4), which is actually God Himself (Isa. 12:2; Luke 2:30), **God became a man on the earth that He might embrace sinners and sinners might cling to Him** (cf. Luke 19:1-10). See note 41 in ch. 2 and note 41 in Hosea 11.
 
@@ -46,7 +46,7 @@ The Greek word means to secure, to obtain, to lay hold of. In [Phil 3:] 12 Paul 
 
 In verses 13 and 14 Paul goes on to say, "Brothers, I do not yet reckon myself to have laid hold, but one thing—forgetting the things which are behind and stretching forward to the things which are before, I pursue toward the goal for the prize of the high calling of God in Christ Jesus." Even though Paul had experienced and gained Christ tremendously, he did not consider that he had experienced Him in full or gained Him to the uttermost. For this reason he was still advancing toward the goal—the gaining of Christ to the fullest extent. We should not be satisfied simply with Bible knowledge, not even with the knowledge of Philippians 3. We need to have the actual pursuing of Christ. The Greek word for pursue can also be translated persecute. Before Paul was saved, he was persecuting Christ in a negative way. After he was saved, he pursued Christ to such an extent we may even say he persecuted Christ, but in a very positive way. **To persecute a person is to trouble him and refuse to let him go. Before Paul was saved, he bothered Christ and would not let Him go, persecuting Him negatively. But after he was saved and had been gained by Christ, he still persecuted Him, but positively, for he refused to let Christ go. We also should persecute Christ in this way** . **This is to pursue Christ in order to gain Him. Do not let Christ go** . Bother Him, persecute Him, in order to gain Him. To persecute Christ in this way is exhausting. As we persecute Christ, we should spend ourselves completely. Our whole being with all of our strength should be consumed in pursuing Christ. I hope that many among us will be impressed with the need to pursue Christ and be stirred up to seek Him even in a persecuting way. **Do not allow Christ to get away from you, but seek Him, pursue Him, persecute Him in such a positive way. Then you will gain Him** (_Life-study of Philippians_, Chapter 23, p. 198).
 
-**Hymns** :
+## Hymns :
 
 _ **Pursue Him and know Him** _
 

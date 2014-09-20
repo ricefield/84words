@@ -18,7 +18,7 @@ Rev. 22:17 **And the Spirit and the bride say, Come! Let him who hears also say,
 
 Rev. 22:20 He who testifies these things says, **Yes, I come quickly. Amen. Come, Lord Jesus** !
 
-**Footnotes:**
+## Footnotes :
 
 S.S. 5:41 Her Beloved shows His pierced hand through her narrow opening so that **her inner parts are moved to yearn for Him. Here Christ's pierced hand reminds her that He was crucified for her** .
 
@@ -28,11 +28,11 @@ Rev 22:173 **The Spirit and the bride, on one hand, desire that the Lord will co
 
 Rev. 22:202 This is the apostle John's prayer and his response to the Lord's warning. It is also the last prayer in the Bible. After hearing this book, **we should all pray such a prayer and have such a response—"Come, Lord Jesus!" The entire Bible concludes with the desire for the Lord's coming expressed as a prayer.**
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 " **My beloved put his hand into the opening of the door, / And my inner parts yearned for him"**** ([S.S. 5:]4). Her Beloved showed His pierced hand through her narrow opening so that her inner parts were moved to yearn for Him.** From experience we know that, on the one hand, we may reject the Lord, but, on the other hand, we may not close the door entirely. After closing the door, we may leave a little opening through which the Lord can stretch His hand. Here the Beloved's pierced hand reminded her that He was crucified for her _(Life-Study of Proverbs, Ecclesiastes and Song of Songs, Chapter 16_).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 959** _
 

@@ -24,11 +24,11 @@ Psa. 119:24 **Also Your testimonies are my delight** ; / They are my counselors.
 
 S. S. 2:3 As the apple tree among the trees of the wood, / So is my beloved among the sons: **In his shade I delighted and sat down** , / And his fruit was sweet to my taste.
 
-**Footnotes** :
+## Footnotes :
 
 S.S. 2:3, note 1 The lover appreciates Christ as the source of rich provision (apple tree) who supplies her in a timely way. **She is satisfied with her delight in resting (sitting down) under Christ as an overshadowing canopy in the day (shade—Isa. 4:5-6; 2 Cor. 12:9) and with her tasting Him as the sweet, timely supply (sweet fruit).**
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 Our heart is the organ of our inclination and affection toward things; it represents us with regard to our inclination, affection, delight, and desire toward things. **All our inclination, affection, delight, and desire are functions of our heart.** Before we were regenerated, our heart was inclined toward sin, loved the world, and desired the things of passion; toward God, however, it was cold and hard, without inclination and without affection; toward the things of God and spiritual things, it had no delight and was void of any desire. **So when God regenerates us, He renews our heart and makes our heart a new heart, with a new inclination, new affection, new delight, and new desire. Thus, once we are regenerated and saved, our heart inclines toward God, loves God, and desires God; toward the things of God, the spiritual things, and the heavenly things, it also has delight and desire** . Whenever such things are mentioned, our heart is joyful, responsive, and desirous. (The Knowledge of Life, p. 37)
 
@@ -40,7 +40,7 @@ In today's Christianity much is said about serving, worshipping, and working for
 
 **It is God's commandment and desire that His people call on Him. It is the joyful way to drink from the fountain of God's salvation and the enjoyable way to delight oneself in God, that is, to enjoy Him** . Hence, God's people must call upon Him daily…. **It is vitally necessary for us, the believers in Christ, to participate in and enjoy the all-inclusive Christ with all He has accomplished, attained, and obtained** (_Life-Study of Acts,_ Chapter 9).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 405** _
 

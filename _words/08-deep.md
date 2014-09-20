@@ -14,7 +14,7 @@ Luke 6:47 Everyone who comes to Me and hears My words and does them, I will show
 
 1 Cor. 2:9 But as it is written, "Things which eye has not seen and ear has not heard and which have not come up in man's heart; things which God has prepared for those who love Him." 10 But to us God has revealed them through the Spirit, **for the Spirit searches all things, even the depths of God** .
 
-**Footnotes** :
+## Footnotes :
 
 1 Cor. 2:9, note 3 **To realize and participate in the deep and hidden things God has ordained and prepared for us requires us not only to believe in Him but also to love Him** . To fear God, to worship God, and to believe in God (that is, to receive God) are all inadequate; to love Him is the indispensable requirement. To love God means to set our entire being—spirit, soul, and body, with the heart, soul, mind, and strength (Mark 12:30)—absolutely on Him, that is, to let our entire being be occupied by Him and lost in Him, so that He becomes everything to us and we are one with Him practically in our daily life. **In this way we have the closest and most intimate fellowship with God, and we are able to enter into His heart and apprehend all its secrets (Psa. 73:25; 25:14). Thus, we not only realize but also experience, enjoy, and fully participate in these deep and hidden things of God** .
 
@@ -24,7 +24,7 @@ Luke 6:47 Everyone who comes to Me and hears My words and does them, I will show
 
 1 Cor. 2:12, note 1 **Praise the Lord that we, those who have been born of God by His Spirit, have received the Spirit of God. Hence, we are well able to know the deep things of God** , which He has graciously given to us for our enjoyment.
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 What is a root?…If all your spiritual life is exposed, you do not have any root. Are all your virtues before God manifested before man, or is there something more that is unknown to man? If all your experiences are manifested, then all your growth is upward; there is no downward growth. If this is the case, you are a person who has only leaves without root, and you are on shallow ground…. **The Christian who parades all his virtues before men and who does not have anything in the depth of his being has no root; he will not be able to stand in the day of trial and temptation…May God work in us so that we can take root downward** . _Collected Works of Watchman Nee, The (Set 2) Vol. 37_: General Messages (1), Chapter 8, Section 1)
 

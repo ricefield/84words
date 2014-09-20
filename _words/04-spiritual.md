@@ -16,7 +16,7 @@ John 4:24 God is Spirit, and those who worship Him must **worship in spirit** an
 
 Eph. 6:18 By means of all prayer and petition, **praying at every time in spirit** and watching unto this in all perseverance and petition concerning all the saints
 
-**Footnotes** :
+## Footnotes :
 
 S.S. 1:4, note 2 **In her pursuing of Christ the seeker is brought by Him into her regenerated spirit as the Holiest of all (his chambers) to have fellowship with Him** (2 Cor. 13:14; Phil. 2:1). Our regenerated spirit (John 3:6) as Christ's dwelling place, which is mingled with and indwelt by Christ as the life-dispensing Spirit (1 Cor. 6:17; 2 Tim. 4:22), becomes His inner chambers, His practical Holy of Holies (Heb. 4:16; 10:19), for our participation in and enjoyment of Him as the consummated Triune God.
 
@@ -28,7 +28,7 @@ Heb 10:19, note 1 The Holy of Holies today is in heaven, where the Lord Jesus is
 
 Rom 2:29, note 2 I.e., based on. Whatever we are, whatever we do, and whatever we have must be in spirit. This will keep us from the vanity of religion. See note 92 in ch. 1. **The reality of all spiritual things depends on the Spirit of God, and the Spirit of God is in our spirit. Hence, the reality of all spiritual matters depends on our spirit,** not on anything apart from our spirit. Whatever is in us is vanity unless it is in our spirit. **Everything that God is to us is in our spirit.**
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 In this message we want to stress the words _private_ and _spiritual_. Christianity preaches the physical Jesus, but we preach the pneumatic Christ, the Christ who is the Spirit (2 Cor. 3:17). This One is private and spiritual. **We have seen that the king's chambers signify our spirit. He visits us in our spirit privately, and He comes to us in a spiritual way, not a physical way** . He visits us privately as the all-inclusive, consummated Spirit.
 
@@ -36,7 +36,7 @@ Christ the King brings His seekers into His chambers, that is, into their regene
 
 The seeker in Song of Songs prayed, "Draw me; we will run after you." Then the king drew her and she followed, but she did not know where to go. The King knows where to go. **We must go to our spirit. The inner chambers of Christ are His lovers' regenerated spirits mingled with and indwelt by Him as the life-dispensing Spirit (Rom. 8:16; 2 Tim. 4:22; Rom. 8:11) and are the practical Holy of Holies in Christ's lovers for their participation in and enjoyment of the pneumatic Christ as the consummated Triune God** (Heb. 4:16). (_Crystallization-Study of Song of Songs,_ Chapter 2, Section 1)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 769, ss. 1-7** _
 

@@ -22,7 +22,7 @@ Heb. 12:2 **Looking away unto Jesus, the Author and Perfecter of our faith** , w
 
 1 John 1:1 That which was from the beginning, which we have heard, **which we have seen with our eyes, which we beheld** and our hands handled, concerning the Word of life.
 
-**Footnotes**** :**
+## Footnotes** :**
 
 2 Cor. 3:18, note 1 But indicates that we believers are different from the children of Israel. They were veiled, but **we with unveiled face behold and reflect like a mirror the glory of the Lord and are thus being transformed into the same image as the Lord from glory to glory** .
 
@@ -52,7 +52,7 @@ Today the glory is the resurrected Christ, and this Christ is the Spirit. This m
 
 **We are all busy in the morning, but we must do our best to save ten or fifteen minutes each day to behold the Lord. To do this is not a waste of time** . If possible, we should reduce our time for sleep. If we normally rise at six o'clock in the morning, we can gain fifteen minutes by rising fifteen minutes earlier. If we take another ten minutes from the time given to our business, we can have a total of twenty-five minutes for beholdingthe Lord each day. **By beholding****  ****Him we will receive an element from the Lord that will transform us into the glorious image of Christ, even from glory to glory. This is the way to enjoy Christ** (_The Central Line of the Divine Revelation_, Chapter 17).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 172, s. 2** _
 

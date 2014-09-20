@@ -18,7 +18,7 @@ Col. 1:27 To whom God willed to make known what are **the riches of the glory of
 
 1 John 3:24 And he who keeps His commandments **abides in Him** , and He in him. And in this we know that **He abides in us** , **by the Spirit** whom He gave to us.
 
-**Footnotes**** :**
+## Footnotes** :**
 
 1 John 1:3, note 3, par. 1 The Greek word means joint participation, common participation. Fellowship is the issue of the eternal life and is actually the flow of the eternal life within all the believers, who have received and possess the divine life. It is illustrated by the flow of the water of life in the New Jerusalem (Rev. 22:1). All genuine believers are in this fellowship (Acts 2:42). It is carried on by the Spirit in our regenerated spirit. Hence, it is called "the fellowship of the Holy Spirit" (2 Cor. 13:14) and "fellowship of [our] spirit" (Phil. 2:1). It is in this fellowship of the eternal life that we, the believers, participate in all that the Father and the Son are and have done for us; that is, we enjoy the love of the Father and the grace of the Son by virtue of the fellowship of the Spirit (2 Cor. 13:14). Such a fellowship was first the apostles' portion in their enjoyment of the Father and the Son through the Spirit. Hence, in Acts 2:42 it is called "the fellowship of the apostles," and in this verse "our [the apostles'] fellowship," a fellowship with the Father and with His Son Jesus Christ. **It is a divine mystery. This mysterious fellowship of the eternal life should be considered the subject of this Epistle** .
 
@@ -26,7 +26,7 @@ Col. 1:27 To whom God willed to make known what are **the riches of the glory of
 
 1 John 3:24, note 1 This verse is the conclusion of this section, which begins in 2:28, on our abiding in the Lord according to the teaching of the divine anointing, as unfolded in the preceding section (2:20-27). This section reveals that abiding in the Lord is the living of the children of God by His eternal life as the divine seed (vv. 15, 9, and note 297 in ch. 2), which grows in the practicing of the righteousness of their begetting God (2:29; 3:7, 10) and the love of their begetting Father (vv. 10-11, 14-23). **Such an abiding and its bases—the divine birth and the divine life as the divine seed—are mysterious yet real in the Spirit** .
 
-**Ministry Excerpts**** :**
+## Ministry Excerpts** :**
 
 **We have seen that the Spirit has been consummated and that Christ has become the life-giving Spirit, the pneumatic Christ. Thus, we may now speak of the divine and mystical realm of this consummated Spirit and of this pneumatic Christ. What a marvelous realm this is** !
 
@@ -44,7 +44,7 @@ Let us now read all of [John 14:] 20: "In that day you will know that I am in My
 
 **We all need to enter into the divine and mystical realm, not of the Triune God, but of the consummated Spirit and the pneumatic Christ (Phil. 1:19; Rom. 8:9; 2 Cor. 3:17-18)** (_The Divine and Mystical Realm_, pp. 43b-44)
 
-**Hymns**** :**
+## Hymns** :**
 
 _ **Hymn 948** _
 

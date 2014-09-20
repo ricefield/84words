@@ -22,7 +22,7 @@ Rev. 2:7 **He who has an ear, let him hear what the Spirit says to the churches*
 
 Exo. 21:6 Then his master shall bring him to God and shall bring him to the door or to the doorpost, and **his master shall bore his ear through with an awl; and he shall serve him forever** .
 
-**Footnotes** :
+## Footnotes :
 
 Exo. 21:62A slave should stand in the position of doing nothing on his own but acting only according to the word of his master and **should have his ear open to hear the voice of his master** (John 5:30; Psa. 40:6; Isa. 50:4-5).
 
@@ -38,7 +38,7 @@ Luke 10:421, par. 1 **The Lord prefers that His saved ones who love Him listen t
 
 Rev. 2:71 Although our angle and position may be right, **we still may not have the proper ear to hear** . Chapter 1 emphasizes seeing and chs. 2 and 3 emphasize hearing. **In spiritual things, seeing depends on hearing. The writer of this book first heard the voice (1:10) and then saw the vision (1:12). If our ears are dull and cannot hear, then we cannot see** (Isa. 6:9-10). The Jews would not hear the word of the Lord, so they could not see what the Lord was doing according to the new testament (Matt. 13:15; Acts 28:27). **The Lord always wants to open our ears to hear His voice** (Job 33:14-16; Isa. 50:4-5; Exo. 21:6) **that we may see things according to His economy** . **The dull ears need to be circumcised** (Jer. 6:10; Acts 7:51). **The sinners' ears need to be cleansed with the redeeming blood and anointed with the Spirit** (Lev. 14:14, 17, 28). **To serve the Lord as priests, we must have our ears cleansed with the redeeming blood** (Exo. 29:20; Lev. 8:23-24). According to this book, as the Spirit is speaking to the churches, **we all need an opened, circumcised, cleansed, and anointed ear to hear the Spirit's speaking** .
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 If we want to understand the Lord's word, there must be a close, affectionate friendship between us and God. **We must also learn to listen to the Lord's word. Mary not only sat at the Lord's feet but also listened to His word. The Lord's will is often expressed through His word. Thus, if we want to know how to understand the Lord's will, we must let Him speak and we must listen to His speaking** . When Abraham was fellowshipping with God, he let God finish speaking (Gen. 18:33). He listened to God until God finished speaking, so he clearly and thoroughly understood the will of God. Often we do not allow the Lord to speak, and we do not listen to Him in our fellowship with Him. Even when we let the Lord speak and we listen to Him, we often do not allow Him to finish speaking and we do not listen until He has finished. Therefore, it is difficult to clearly know the will of God. Mary sat at the Lord's feet, but she was not like us. She allowed the Lord to speak, and she listened to Him. She also allowed the Lord to finish speaking, and she listened until He was finished. Therefore, she understood the Lord's prophetic revelation of His death and poured pure ointment on Him ahead of time, which He praised. The other disciples could not understand the Lord's will concerning His death, because they did not listen to the Lord in this way. **Listening to the Lord's word is absolutely necessary to understanding the will of God.** (_Crucial Truths in the Holy Scriptures, Vol. 2_, Chapter 10)
 
@@ -54,7 +54,7 @@ Today most of the Lord's saved ones are busy trying to serve Him. They may also 
 
 If we love the Lord, we will keep His commandments (14:15, 21, 23). In 14:21 the Lord said, "He who has My commandments and keeps them, he it is who loves Me; and he who loves Me shall be loved by My Father, and I will love him, and will manifest Myself to him." If we keep the Lord's commandments, we shall be loved by the Father and the Son, and the Son will manifest Himself to us. **Tell me, according to your experience, when the Lord spoke the word "no" to you and you obeyed Him, what was the result? You found yourself immediately in the presence of the Lord. But if we do not care for that little word "no," we shall lose His presence. Whenever we listen to His speaking and keep His commandments, His presence is immediately intensified and becomes so sweet, precious, watering, strengthening, enlightening, and nourishing. This is the manifestation of the indwelling Christ.** (_Life-Study of John_, Chapter 32)
 
-**Hymns**** : **
+## Hymns** : **
 
 _ **Hymn 784, ss. 1, 5** _
 

@@ -20,7 +20,7 @@ John 20:27 Then He said to Thomas, Bring your finger here and see My hands, and 
 
 1 John 1:1 That which was from the beginning, which we have heard, which we have seen with our eyes, which we beheld and **our hands handled, concerning the Word of life**
 
-**Footnotes** :
+## Footnotes :
 
 Mark 5:30, note 1 (power) The Slave-Savior was God incarnated to be a man (John 1:1, 14). His garments signify His perfect behavior in His humanity—His perfection in His human virtues. **To touch His garments was actually to touch Him in His humanity, in which God was embodied (Col. 2:9). By such a touch His divine power was transfused, through the perfection of His humanity, into the one who had touched Him, and it became her healing. The God who dwells in unapproachable light became touchable in the Slave-Savior through His humanity for her salvation and enjoyment** . This was the service of the Slave-Savior, as the Slave of God, to the sick sinner.
 
@@ -28,7 +28,7 @@ Mark 5:30, note 1 (power) The Slave-Savior was God incarnated to be a man (John 
 
 Heb 9:14, note 5 This book does not teach religion; rather, it reveals the living God (3:12; 9:14; 10:31; 12:22). **To touch this living God we need to exercise our spirit (4:12) and have a blood-purified conscience in our spirit** .
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 The Lord is in His Word, and the Lord Himself is the Word. **A person can touch the Lord in two places—the Word and the Spirit** . The Lord is in the Word, and the Lord is the Word. The Lord is also in the Spirit, and He is the Spirit. We thank Him that we have the Word outside of us and the Spirit inside of us. **We have the Lord's Word in our hand, and we have the Lord's Spirit in our spirit. These are the two places where we can contact the Lord** . Even though the Lord is omnipresent, invisible, and intangible, we can surely locate Him in these two places (_Lessons for New Believers_, Chapter 24).
 
@@ -44,7 +44,7 @@ When we pray, we must learn to turn to our spirit. We must learn to set aside ou
 
 **Whenever we touch God and live in His countenance, we will see that we are dirty and full of sins** . We will also realize that our person, which is of the old creation, is a big frustration to God. At such times we will immediately apply the blood and say, "Lord, cleanse me with the blood. Cleanse me with the blood." … **Whenever we touch our spirit, and whenever we touch God and sense His presence and mingling, we will realize that we are unclean** . Even if we spend one hour praying for cleansing, we will still need the cleansing of the blood in the next hour. Only when we touch God can we discover, realize, and see our filthiness. A believer once said, "Even my tears of repentance require the cleansing of the blood." We need to repent even for our repentance for sins. **I can testify that the more one touches God's presence and His countenance, and the more one mingles with God and cooperates with Him, the more he feels a need for the cleansing of the blood** (_How to__Enjoy God and How to Practice the Enjoyment of God_, Chapter 4).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 559** _
 

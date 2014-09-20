@@ -24,13 +24,13 @@ Eph. 1:3 **Blessed be the God and Father of our Lord Jesus Christ, who has bless
 
 1 Pet. 1:3 **Blessed be the God and Father of our Lord Jesus Christ, who according to His great mercy has regenerated us** unto a living hope through the resurrection of Jesus Christ from the dead,
 
-**Footnotes** :
+## Footnotes :
 
 Psa. 34:12 **To bless God is to speak well of Him, praising Him with adoration** . See note 31 in Eph. 1.
 
 Eph. 1:31 Lit., **well spoken of; i.e., praised with adoration. In this section the Triune God is well spoken of, praised with adoration:** the Father in His selection and predestination for God's eternal purpose (vv. 3-6), the Son in His redemption for the accomplishment of God's eternal purpose (vv. 7-12), and the Spirit in His sealing and pledging for the application of God's accomplished purpose (vv. 13-14). Through all the virtues of the Divine Trinity, we, the fallen sinners, become the church, the Body of Christ, the fullness, the expression, of the One who fills all in all.
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 **In [1 Peter] 1:3 Peter uses the word "blessed." Paul also uses this word in Ephesians 1:3: "Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavenlies in Christ."**** In Greek the word blessed means well spoken of, praised with adoration. Hence, a blessing is a well-speaking **, and to bless someone is to speak well of him. Therefore, to bless God is to speak well concerning Him and all that He is to us, has done for us, and will do for us. To bless God is to speak in a sweet way of what God is, of what He has done, and of what He will do. This kind of speaking is a blessing….Gradually the Lord has brought me into the thought of the divine revelation in the Bible. I can testify that when I read such a verse as 1:3,** I realize that to bless God the Father is to speak well of what God is to us subjectively **. It is not merely to praise Him for what He has done for us or given to us objectively.** To bless God the Father is to speak subjectively of what He is to us, of what He has done for us, and of what He will do for us. This is to bless God according to what is revealed in the New Testament**. (_Life-Study of 1 Peter,_ Chapter 10)
 
@@ -38,7 +38,7 @@ Eph. 1:31 Lit., **well spoken of; i.e., praised with adoration. In this section 
 
 We need to speak well concerning God according to the New Testament economy. In our well-speaking we need to have the thought of incarnation, the impartation of life, and the heavenly, spiritual transmission. We also need to include the thought of Christ as the Lord and the Head and of Jesus being Jehovah our Savior to accomplish redemption and salvation for us. We also need to think of Christ as God's anointed One who fully accomplishes God's purpose. **Our well-speaking, our high praise concerning God, should not be natural, but filled with the revelation of all the wonderful aspects of God's New Testament economy** . (_Life-Study of Ephesians,_ Chapter 2)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 595** _
 

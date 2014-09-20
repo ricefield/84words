@@ -16,7 +16,7 @@ Prov. 28:13 He who covers his transgressions will not prosper, / **But whoever c
 
 1 John 1:9 **If we confess our sins, He is faithful and righteous to forgive us our sins** and cleanse us from all unrighteousness.
 
-**Footnotes** :
+## Footnotes :
 
 Gen. 3:111 God questioned Adam and Eve not because He intended to condemn them but because **He wanted to lead them to confess their transgressions** (cf. 1 John 1:9).
 
@@ -28,7 +28,7 @@ Psa. 51:181 Verses 18-19 signify the participation in the enjoyment of God in th
 
 1 John 1:92 God is faithful in His word (v. 10) and righteous in the blood of Jesus His Son (v. 7). His word is the word of the truth of His gospel (Eph. 1:13), which tells us that He will forgive us our sins because of Christ (Acts 10:43); and the blood of Christ has fulfilled His righteous requirements that He might forgive us our sins (Matt. 26:28). **If we confess our sins, He, according to His word and based on the redemption through the blood of Jesus, forgives us because He must be faithful in His word and righteous in the blood of Jesus; otherwise, He would be unfaithful and unrighteous. Our confession is needed for His forgiveness. Such forgiveness of God, which is for the restoration of our fellowship with Him, is conditional; it depends on our confession** .
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 Many have repented and were saved but have never thoroughly confessed their sins before God. Therefore, they do not have much joy of salvation or spiritual hunger, thirst, pursuit, or growth. **If we want to richly taste the Lord's joy of salvation, we must come before the Lord and thoroughly confess our sins. If we also want to have spiritual hunger, thirst, pursuit, and growth, we must come before God and confess our sins one by one. When we confess our sins to God in this way, we cannot be general; we cannot confess, in principle only, that we have sinned greatly. We must be specific and confess our sins one by one.** We cannot bring a bag of sins to God, throw it down before Him, and forget about it. We must open the bag of sins before God and mention each sin; we must open the bag and thoroughly confess each sin one by one. It is not sufficient to say to God, "I have committed many sins. I am full of sin. Please forgive me," and think that everything is all right. **We must ask God to search us, enlighten us, and expose all our sins so that we might see them and confess them to Him one by one. Only this is sufficient.**
 

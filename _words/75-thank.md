@@ -24,7 +24,7 @@ Col. 4:2 **Persevere in prayer, watching in it with thanksgiving** .
 
 1 Thes. 5:18 **In everything give thanks** ; for this is the will of God in Christ Jesus for you.
 
-**Footnotes:**
+## Footnotes :
 
 Psa. 50:141 This psalm tells us that some of the saints of God were offering burnt offerings and other kinds of offerings (vv. 8-13), but because they were lacking in affection, they would not offer the sacrifice of thanksgiving to God. **Thus, the psalmist, speaking for God, indicated that what God wants is not the burnt offering but the thanksgiving offering.** We can offer certain offerings without being touched in our hearts, but **when we are thankful to God and offer to Him a prayer of thanksgiving, our hearts are deeply touched and we are filled with affection and tender feeling toward God. This is the kind of offering God desires** .
 
@@ -34,7 +34,7 @@ Col. 4:23 In prayer we need to be watchful and alert, not negligent. Such **watc
 
 1 Thes. 5:182 This clause modifies the three preceding exhortations. **God wants us to live a rejoicing, praying, and thanking life. Such a life is a glory to God and a shame to His enemy** .
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 It is significant that **in [Philippians] 4:6 Paul does not speak of prayer, petition,** _ **and** _ **thanksgiving, but of prayer and petition** _ **with** _ **thanksgiving. Both our prayer and petition should be accompanied by thanksgiving to the Lord.** Recently I once again learned the lesson of being thankful to the Lord. When I asked the Lord to restore my health, **I was rebuked by Him for not thanking Him for the measure of health I still had.** Whenever we are ill, we need to say, "Lord, I thank You that I am still healthy to a certain degree. Lord, I am ill, but I am not so ill that I cannot minister Christ to the saints. But, Lord, You know that I am not altogether healthy. Therefore, I ask You to improve my health and make me fully healthy again." We all need to learn to petition the Lord in this way. (_Life-study of Philippians,_ Chapter 62, Section 2)
 
@@ -46,7 +46,7 @@ Some brothers raise their eyebrows as soon as trials come to them. They murmur, 
 
 As you walk on the spiritual pathway, do not ask whether you should start with your right foot or with your left. Actually, to this day I still do not know which foot goes first when I walk. If you pay your attention to trying to decide which foot should go first, you will probably have difficulty in walking. **Therefore, in our Christian life we should pray and give thanks, and we should give thanks and pray; we should always walk this way. Perhaps before you go to bed, you pray first and then give thanks, but in the morning when you get up, you give thanks first and then pray. Prayer and thanksgiving are the Christians' spiritual feet.** If one foot is missing, walking becomes extremely difficult; if both feet are missing, walking becomes impossible. If Christians do not pray and give thanks, they cannot have a proper Christian life. (_Abiding in the Lord to Enjoy His Life_, Chapter 3)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 595, ss. 1-2** _
 

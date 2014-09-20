@@ -24,13 +24,13 @@ Isa. 26:9 **My soul desires You in the night** ; / Indeed my spirit within me se
 
 Matt. 5:6 Blessed are those who **hunger and thirst for righteousness** , for they shall be satisfied.
 
-**Footnotes** :
+## Footnotes :
 
 Psa 42:1, note 2 (pants) In this psalm the psalmist was panting and thirsting (v. 2) for God at a time when he and his people had been stripped and defeated by the neighboring nations and were in captivity (see note 61). Panting and thirsting for God are different from worshipping God in a formal, religious way. **God is our living water for us to drink (John 4:10, 14; 7:37-39a; 1 Cor. 12:13). We need to pant and thirst for Him and to drink Him** .
 
 Psa 43:4, note 1 The psalmists who wrote Psa. 42—44 were lovers of God in their captivity (42:6). **They were panting for God, thirsting for God (42:1-2), and desiring to return to Jerusalem, to go to Mount Zion to reach the altar** . **Then they could enter into the temple to meet God their exceeding joy** . This is why they prayed that God would give them the light and the truth (v. 3) that they might know how to be released from their captivity and return to God's dwelling place.
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 **The reason that God renews our heart and gives us a new heart at the time of our regeneration is that He wants us to incline toward Him, adore Him, desire Him, and love Him** . Before, we did not love Him and we could not love Him, because our heart was old and hard. Now He has renewed, softened, and turned our heart; thus, we are both able and willing to love Him. Since our heart by being renewed has become a new heart, it now has a new function. This new function is that it can incline toward God and love God and the things of God. **Since regeneration gives us a new heart, it causes us to have a new inclination and love, a new desire and longing. This new inclination, love, desire, and longing are all toward God and the things of God.** This is the function of the new heart; this is also the purpose of God in giving us a new heart (_The Knowledge of Life,_ Chapter 4).
 
@@ -40,7 +40,7 @@ According to the Word of God and the experience of many saints, the first thing 
 
 It is very striking that Book Two begins with the psalmist's panting after God. Panting after God is different from worshipping God in a formal, religious way. God is our living water for us to drink. Do we need to bow down to worship the water? **We need to pant after this water and then drink it. In verse 1 the word pants is used. In verse 2 the word thirsts is used. My soul pants for God and thirsts for God. I love these predicates. We need to have times with the Lord in which we pant after Him and thirst for Him** (_Life-Study of Psalms, _Chapter 19).
 
-**Hymns** :
+## Hymns :
 
 _ **Mary poured out her love offering, ss. 1-3** _
 

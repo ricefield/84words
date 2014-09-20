@@ -18,7 +18,7 @@ Eph. 6:24 **Grace be with all those who love our Lord Jesus Christ in incorrupti
 
 1 John 4:19 **We love because He first loved us** .
 
-**Footnotes:**
+## Footnotes :
 
 Exo 20:6, note 2, note 1 **…In order for God and His people to be one, there must be a mutual love between them (John 14:21, 23).** The love between God and His people unfolded in the Bible is primarily like the affectionate love between a man and a woman (Jer. 2:2; 31:3). **As God's people love God and spend time to**** fellowship with Him in His word, God infuses them with His divine element, making them one with Him as His spouse, the same as He is in life, nature, and expression **(Gen. 2:18-25 and notes). See note 81, pars. 2 and 3, in ch. 19.
 
@@ -40,7 +40,7 @@ Life is a Person, and there is no other way to apply and enjoy this Person but b
 
 In itself God's love is absolutely perfect. There is no need whatever for God's love to be perfected, for it is already perfect and complete. However, God's love becomes the love with which we love Him, and this kind of love does need to be perfected. We love God by the love that is generated in us through our experience of the divine love. Although we may have this love and may love God with this love, our love is still very limited and far from perfect. **Therefore, our love for God needs to be perfected. As we grow in the divine life, our love for God also will grow.** (_Life-Study of 1, 2, & 3 John, Jude_, Chapter 15).
 
-**Hymns**** : **
+## Hymns** : **
 
 _ **Hymn 546** _
 

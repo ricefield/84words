@@ -20,7 +20,7 @@ Matt. 9:17 Neither do they put new wine into old wineskins; otherwise, the wines
 
 2 Cor. 5:17 So then **if anyone is in Christ,**** he is a new creation**. The old things have passed away; behold, they have become new.
 
-**Footnotes** :
+## Footnotes :
 
 Lev 2:14, note 1: **The meal offering of the firstfruits of new grain signifies the fresh enjoyment of Christ in His resurrection** (John 12:24; 1 Cor. 15:20). The crushing of the grains signifies being dealt with by the cross of Christ.
 
@@ -32,7 +32,7 @@ Psa 92:10, note 2 (anointed): Or, mingled; the same word is used in Lev. 2:4 (se
 
 Rev 22:2, note 2: The fruits of the tree of life will be the food of God's redeemed for eternity. **They will be continually fresh,** being produced every month, twelve fruits yearly. That the tree of life bears twelve fruits means that the fruit of the tree of life is rich and is sufficient for the carrying out of God's eternal administration.
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 **What is it to be fresh? To be fresh is to be vigorous and living. When you meet a saint with the appearance of oldness, you know that he has not been living in the Spirit. One who lives in the Spirit is renewed daily and never gets old** . A certain saint once testified that in 1933 he met an elderly Christian brother in Europe. This elderly brother was already over eighty years of age at that time and was not able to hear well. But when the saint fellowshipped with this brother, **he enjoyed his spiritual freshness** . According to his physical body, this elderly brother was not able to hear or speak much, but when people came to him, they could sense his inward freshness. This elderly man would hold the saint's hand steadily and firmly and say, "Brother, to this day I cannot live without Him, and He cannot live without me." Who is this "He"? This "He" is the Lord. How sweet a statement this is: "I cannot live without Him, and He cannot live without me." These two sentences are so fresh! This brother did not need to use thousands of words. Rather, in two sentences **he was able to cause others to touch God. This proves that he was inwardly living and fresh and had the presence of God** . (_Spiritual Reality_, Chapter 8)
 
@@ -42,7 +42,7 @@ The Bible says that Saul was taller than any of the people from his shoulders an
 
 **A person who lives before the Lord…should be shining and fresh every day** . Whenever he comes to the Lord, he receives light. This is not the light that he saw yesterday but new light that he sees today. His inner being is always clear and certain about the direction of his serving and the move of the Holy Spirit. Not only does he know the direction of the move of the church, but he also knows God's purpose for the church on the earth. **His inner feeling is always fresh and bright. This kind of person is always learning something new and receiving new shining each day** . When people contact him, although outwardly he may not seem to be very affectionate, his inner being is soft and fresh, as clear as crystal, and transparent. Some who are saved, even having received grace from the Lord, would behave in a rough way; their problem is that their heart is not pure enough for the Lord. They are too complicated within, and so when a feeling comes, they are not willing to receive it. We all have the feeling within us, yet often we are not willing to receive the breaking that comes with the feeling. This unwillingness is the rejection of light. (_The Pure in Heart,_ Chapter 2, p.22)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 743, s. 7** _
 

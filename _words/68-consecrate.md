@@ -16,7 +16,7 @@ Exo. 32:29 And Moses said, **Consecrate yourselves today to Jehovah** , for ever
 
 Psa. 110:3 **Your people will offer themselves willingly / In the day of Your warfare, / In the splendor of their consecration.** / Your young men will be to You / Like the dew from the womb of the dawn.
 
-**Footnotes** :
+## Footnotes :
 
 Psa 110:32 **In the eyes of the Lord our willing consecration, our offering ourselves to Him, is a matter of splendor. Although the church has become degraded, throughout the centuries there has been a line of those who have offered themselves willingly to the Lord in the splendor, the beauty, of their consecration** .
 
@@ -26,7 +26,7 @@ Psa 110:33 Here Christ likens Himself to a plant that needs the watering of the 
 
 Mat 26:132 **The story of the gospel is that the Lord loved us, and the story of Mary is that she loved the Lord. We must preach both—the Lord's loving us and our loving the Lord. One is for our salvation, and the other is for our consecration.**
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 **Consecration is a gate, and we must be determined to enter through this gate** . Consecration is entering through a gate. We cannot regard this as a doctrine. A person who has not consecrated himself is outside of the gate. Only a person who has consecrated himself is inside of the gate. Therefore, we need to enter through this gate with determination.
 
@@ -42,7 +42,7 @@ We may say that we do not have much faith. The reason we do not have faith is th
 
 **We have to go on by consecration day by day. A day without consecration is a wasted day. If we have a struggle with the Lord and we win the victory, making the Lord the defeated One, then regardless of how much we do for the Lord we will only waste our time. The measure of our life and going on is our consecration** . (_Practical Lessons on the Experience of Life_, pp. 35-36)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 445** _
 

@@ -26,7 +26,7 @@ Rom. 10:12 For there is no distinction between Jew and Greek, **for the same Lor
 
 1 Cor. 1:2 To the church of God which is in Corinth, to those who have been sanctified in Christ Jesus, the called saints, **with all those who call upon the name of our Lord Jesus Christ in every place, who is theirs and ours** .
 
-**Footnotes** :
+## Footnotes :
 
 Gen 4:26, note 2 (call) **The Hebrew word means to call out to, to cry unto, i.e., to cry out audibly** . Because men realized that their life was vanity (see note 21) and that they were frail and mortal (see note 261), they spontaneously began to call upon the name of Jehovah, the eternal One (see note 44 in ch. 2). **Although they were vain and weak, by calling on the name of the Lord, they were made rich and strong, for they entered into the riches and strength of the One on whom they called** (Rom. 10:12-13 and notes). See note 211 in Acts 2.
 
@@ -38,7 +38,7 @@ Rom 10:13, note 1 **Calling on the name of the Lord is the secret not only to ou
 
 Rom 10:13, note 2 To be saved here means to be brought into the enjoyment of the riches of the Lord. The Lord is rich to both Jews and Greeks. **All who call on the Lord's name enjoy this rich Lord; as a result, they are filled with Him and express Him** .
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 As we have seen already from Lamentations, our calling, "O Lord Jesus," is our breathing. Hymn #73 in Hymns was written by Miss M. E. Barber, an older sister who helped Brother Watchman Nee very much. Stanza 2 says, "Blessed Jesus! Mighty Savior! / In Thy Name is all I need; / Just to breathe the Name of Jesus, / Is to drink of Life indeed." Three or four years ago when I told the Lord's people that to breathe is to drink, I was a little doubtful. I had never heard anyone say this, and I thought that I might be too much. However, one night in Los Angeles this hymn was called. While we were singing, I was surprised at the lines which say, "Just to breathe the Name of Jesus, / Is to drink of Life indeed." At least one other person, Miss Barber, a sister who was deep in the Lord, experienced the same thing. **To call on the name of the Lord is to breathe Him, and to breathe Him is to drink of Him. The way to drink of the one Spirit is to call, "O Lord Jesus!" To call is to breathe, and to breathe is to drink, so to call is simply to drink.**** If you are thirsty, call on the Lord. At any time or any place, even while we are driving, we may be thirsty. Then we may call on the Lord and receive the living water. Try it; it always works. When we call on the name of the Lord, we drink of the Lord and we receive all the riches of the Lord** (_Enjoying the Riches of Christ for the Building Up of the Church as the Body of Christ,_ Chapter 12).
 
@@ -50,7 +50,7 @@ There is no need always to call on the Lord purposely or deliberately. **We may 
 
 We believe in the processed, dispensing Triune God and realize that we have been regenerated, yet we may not breathe, drink, eat, or grow in a regular way. The root hairs of our Christian life should be like the countless root hairs of a tree. **All day long, we need to breathe in the Lord. Some saints may not call on the Lord for three days or even a month. As a result, there is no growth in the Lord with them because there are no root hairs. We need to call on the Lord all the time. This is why Paul tells us to pray unceasingly (1 Thes. 5:17). To pray is both to breathe and to drink. M.E. Barber said in a hymn that "to breathe the Name of Jesus is to drink of Life indeed" (Hymns, #73). We have to call, to pray, to breathe, to drink** . Then we have to eat the Lord. We also need to abide in the Lord that we may grow. If we take care of these life matters, we will be people who are in the divine dispensing of the divine Trinity to carry out the divine economy for the fulfillment of the divine purpose(_Messages to the Trainees in Fall 1990,_ Chapter 5).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 73** _
 

@@ -16,7 +16,7 @@ Matt. 5:8 **Blessed are the pure in heart** , for they shall see God.
 
 2 Tim. 2:22 - But flee youthful lusts, and pursue righteousness, faith, love, peace with those who **call on the Lord out of a pure heart** .
 
-**Footnotes:**
+## Footnotes :
 
 Matt. 5:8, note 1 **To be pure in heart is to be single in purpose, to have the single goal of accomplishing God's will for God's glory** (1 Cor. 10:31). This is for the kingdom of the heavens. Our spirit is the organ by which we receive Christ (John 1:12; 3:6), whereas our heart is the ground where Christ as the seed of life grows (13:19). For the kingdom of the heavens we need to be poor in spirit, empty in our spirit, that we may receive Christ. Also, **we need to be pure, single, in our heart that Christ may grow in us without frustration** .
 
@@ -24,7 +24,7 @@ Matt. 5:8, note 2 **If we are pure in heart in seeking God, we will see God** . 
 
 1Tim. 1:5, note 3 **A pure heart is a single heart without mixture, a heart that seeks only the Lord and takes the Lord as the unique goal** …
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 Matthew 5:8 says, "Blessed are the pure in heart, for they shall see God." Second Corinthians 3:16 goes on to say, "But whenever their heart turns to the Lord, the veil is taken away." These two verses reveal that in order for someone to see God and receive His shining, the most important thing is that he must either be one who is already not covered in any way, or he must have his coverings removed. **The pure in heart shall see God because they are not covered by anything** . When a veil is put on someone's face, it covers his eyes, but when the veil is taken away, he is able to see the light.
 

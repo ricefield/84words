@@ -16,7 +16,7 @@ Job 5:8 But as for me, I would seek after God, / **And I would commit my cause t
 
 Phil. 4:6 In nothing be anxious, but in everything, by prayer and petition with thanksgiving, let your requests be made known to God.
 
-**Footnotes** :
+## Footnotes :
 
 1 Pet. 5:71 **[Casting] Or, throwing…upon; i.e., committing… to, giving up…to.** The tense of the verb indicates a once-for-all act.
 
@@ -26,7 +26,7 @@ Phil. 4:6 In nothing be anxious, but in everything, by prayer and petition with 
 
 1 Pet. 5:74 Or, He cares for you. The disciplining and judging God has a loving concern for the believers, especially the persecuted ones. He cares for them faithfully. **They can throw their care on Him, especially in their persecution.**
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 In Psalm 55…Verses 1-2, 4-8, 16-18a, 22, and 23b show us that the psalmist is seeking to experience God's salvation. Verse 22, a "golden" verse, says, " **Cast your burden upon Jehovah,/And He will support you;/** He will never allow the righteous to be moved." This verse assures us that with God we are safe, for He, the supporting One, will not allow anything to move us. **Do you have any kind of burden, and are you still bearing it by yourself? You need to cast your burden upon Jehovah, and He will support you** . (Life-study of Psalms, Ch. 24, Section 5)
 
@@ -36,7 +36,7 @@ There are many verses in the Bible which are precious promises of God to us. In 
 
 **He has invited us to come before Him and cast our anxieties on Him** . God is a God who bears our anxiety. He beckons us to lay our anxiety on Him. To Him this is no hardship. Isaiah 53:4 said that the Lord Jesus has "borne our sicknesses and carried our sorrows…" If you worry about your immediate problems, the break up of your family, the moral degradation of your children and their waywardness from the Lord, the failure of your business, the frictions between in-laws, the salvation of others, or the backward and fallen spiritual condition of God's children, **you should realize that God wants you to cast your anxiety on Him. In the midst of all these problems, God is asking you to come to Him. God is asking you to come not with your good things, but with your anxieties and worries. He will bear your anxieties** . All of you who have a broken heart, a heavy heart, and a pained heart, come unto God! Today you need not be anxious anymore! This is the gospel. (Collected Works of Watchman Nee, The (Set 1) Vol. 18: Notes on Scriptural Messages (2), Chapter 4, Section 3)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 661** _
 

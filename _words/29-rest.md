@@ -28,7 +28,7 @@ Matt. 11:28 **Come to Me all who toil and are burdened, and I will give you rest
 
 Heb. 4:3 **For we who have believed enter into the rest** , even as He has said, "As I swore in My wrath, They shall not enter into My rest!" although the works of creation were completed from the foundation of the world.
 
-**Footnotes** :
+## Footnotes :
 
 Gen 2:2, note 1, par. 2 Later, the seventh day was commemorated as the Sabbath (Exo. 20:8-11). **God's seventh day was man's first day. God had prepared everything for man's enjoyment. After man was created, he did not join in God's work; he entered into God's rest. Man was created not to work but to be satisfied with God and rest with God** (cf. Matt. 11:28-30). The Sabbath was made for man, not man for the Sabbath (Mark 2:27).
 
@@ -42,7 +42,7 @@ S.S. 2:3, note 1 The lover appreciates Christ as the source of rich provision (a
 
 S.S. 2:7, note 1 Considering His lover as one who is easily stirred up (gazelles or hinds of the fields), Christ solemnly charges (adjures) the meddling believers (daughters of Jerusalem) **not to awaken His lover from her present experience of Christ in resting in Him. In her Christian life she has reached the goal of resting in and experiencing Christ and being satisfied in the church life. He allows her to remain at rest until she is pleased to enter into the second stage of her pursuing after Him (until she pleases).**
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 **Everyone is looking for rest. Rest always includes satisfaction. If we are not satisfied, we can never be at rest** . **Whenever we come to the Lord, the first thing we receive is rest** . (_Life-Study of Genesis_ p. 895)
 
@@ -54,7 +54,7 @@ S.S. 2:7, note 1 Considering His lover as one who is easily stirred up (gazelles
 
 **Rest includes the thought of relief, peace, and ease….We need to take care of the inner relief, peace, and ease within our spirit** . **This is one basic, spiritual principle in the matter of life. If we are going to grow in life, we should not care for the outward circumstances. We have to take care of the inner feeling of whether or not we have the rest deep within us** ….The Lord might say to us, "My child, I know that your circumstances and reasons are good, but do you have the rest with the Lord? **Do you care for the outward circumstances or the inward rest** ? I am not in the outward circumstances. I am in your spirit."….To follow the rest you have to pay a price. To argue may give you a certain kind of pleasure, but you lose the Lord's presence; you do not have the rest with the Lord. I am not speaking of the rest in your thinking or of the satisfaction in your emotion **. I am speaking of the real ease, relief, peace, and rest in your spirit. We all have to learn this deeper lesson. I encourage you all to follow the Lord in this way. This is the way to grow in life. Never care for the outward circumstances; always care for the inner res** t (_The Experience of Christ as Life for the Building Up of the Church_, Chapter 13).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 579, ss. 1, 3-4** _
 

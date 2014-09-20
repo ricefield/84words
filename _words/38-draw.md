@@ -14,7 +14,7 @@ Heb. 10:19 Having therefore, brothers, **boldness for entering the Holy of Holie
 
 Heb. 10:22 **Let us come forward to the Holy of Holies** with a true heart in full assurance of faith, **having our hearts sprinkled from an evil conscience** and having our bodies washed with pure water.
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 **God the Father not only is seen by the pure in heart but also draws near to those who draw near to Him. James 4:8 says, "Draw near to God, and He will draw near to you.** " God can be seen, but we need to be pure in heart. Likewise, God desires to draw near to us, but we need to draw near to Him. If we do not draw near to Him, He will not draw near to us in our experience. **His drawing near to us hinges on our taking the initiative first to draw near to Him** .
 
@@ -34,7 +34,7 @@ When we do not deal with our sins by confessing them in God's light, but rather 
 
 The Old Testament presents a very clear type of this. When a priest entered the tabernacle to minister and serve God, he first had to pass through the altar. This is a type of dealing with sins. **In order for a sinful man to draw near to God, he had to pass through the altar. This also applies to us in the New Testament age. When we draw near to God in prayer, we must first receive the shining of God and then confess our sins one by one according to the inner sense until we are transparent within, until there is a clear way between God and us** . It is at this time that we can entreat God according to the inward sense. Therefore, in a good prayer, confession always precedes supplication. (_Lessons for New Believers_, pp. 97-98)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 387** _
 

@@ -10,11 +10,11 @@ remain
 
 Gen. 18:16 And the men rose up from there and looked down upon Sodom. And **Abraham walked with them to send them away.** 17 And Jehovah said, Shall I hide from Abraham what I am about to do, 22 And the men turned from there and went toward Sodom, **while Abraham remained standing before Jehovah** . 33 **And Jehovah went away as soon as He had finished speaking with Abraham** , and Abraham returned to his place.
 
-**Footnotes** :
+## Footnotes :
 
 Gen 18:33, note 1 **Abraham's intercession did not terminate with Abraham's speaking but with God's** , showing that genuine intercession is God's speaking in our speaking.
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 Although God remained at Abraham's tent door for several hours, talking a great deal to him, God did not say a word about His purpose in coming to secure an intercessor. We often act in the same way. Perhaps you want a brother to do a certain thing for you. If you are wise, you will not come to him and immediately ask him to do what you desire. You will first determine his mood by having a talk with him about various matters. At the very end of your visit, as the brother is seeing you to the door or conducting you on your way, you may open yourself to him and tell him of your desire. **However, if he does not linger with you but says, "See you in the meeting tonight," you will realize that his heart is too cold and that he would not be interested in doing what you want him to do. But**** if he says, "I would like to stay with you for a while longer," then you will know that you can open yourself to him.**
 
@@ -30,7 +30,7 @@ In summary, when we come to God to breathe Him in, we must first turn to our spi
 
 Toward the end of our fellowship, if there is still time, we should also worship God. It is rather difficult to describe exactly what worship is and what our inner condition should be when we worship. **We may say that worship is a lingering before God. We should not simply get up and leave as soon as we have finished praising and thanking God. No, we should linger before Him a little longer. This kind oflingeringis the issue of our heart's desire for God. It involves beholding, waiting, and inquiring; we behold God's glory,lingeringbefore Him to wait on Him and inquire of Him. This is not an inquiring related to specific things. Instead, it is a waiting out of a desire to know His will. All these things are included in worshipping** (_Lessons for New Believers_, Chapter 23, p. 330).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 812** _
 

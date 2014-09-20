@@ -24,7 +24,7 @@ Phil. 1:4 **Always in my every petition on behalf of you all, making my petition
 
 1 Tim. 2:1 **I exhort therefore, first of all, that petitions, prayers, intercessions, thanksgivings be made on behalf of all men.**
 
-**Footnotes** :
+## Footnotes :
 
 Eph. 6:182Prayer is general and **petition is particular** ; both are needed that we might have a proper, overcoming church life.
 
@@ -32,7 +32,7 @@ Eph. 6:186 (petition) This indicates that **we need to pray in a particular way 
 
 Phil. 4:62 Prayer is general, having worship and fellowship as its essence; **petition is special, being for particular needs** .
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 In [Philippians] 4:6 and 7 Paul says, "In nothing be anxious, but **in everything, by prayer and petition with thanksgiving, let your requests be made known to God** ; and the peace of God, which surpasses all understanding, will guard your hearts and your thoughts in Christ Jesus." Paul certainly composed these verses in a very thoughtful way. In verse 6 he speaks of prayer, petition, and thanksgiving. Prayer is general and includes the essence of worship and fellowship; **petition is special and is related to particular needs** . According to Christian experience, to pray is to have fellowship, communion, with the Lord and to worship Him. Daily we need to have a time to contact the Lord, to have fellowship with Him, and to worship Him. **During the course of our fellowship, we may have particular requests. Thus, we not only pray in a general way, but make petitions to the Lord in a particular way. We offer our petitions to the One with whom we are having fellowship. Petition, therefore, is a special request made during the course of our prayer.** (_Life-study of Philippians,_ Chapter 62)
 
@@ -44,7 +44,7 @@ We know that at every time we have to be watchful because there are dangers ahea
 
 Daniel's prayer reached the highest peak. He asked God to do something for Himself. He prayed, "Cause Your face to shine upon Your sanctuary that has been desolated, for the Lord's sake" (Dan. 9:17). I hope that we would circle the words "for the Lord's sake." We can see that his prayer was totally for God and not for himself. It seems as if he was saying to God, **"My supplication here today is not for myself but for You. Even though I am asking You to do something, it is not for myself, but for You."** This was a very special prayer; it was also the highest prayer. Our prayers are ninety-nine and nine tenths percent for ourselves. Very few of them are for God. Only a person like Daniel, who prayed to God single-heartedly, can be used by Him to turn the age. (_Men Who Turn the Age_, Chapter 2)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 776** _
 

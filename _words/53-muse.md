@@ -22,13 +22,13 @@ Psa. 119:148 **My eyes anticipated the night watches, / That I might muse upon Y
 
 Psa. 145:5 **Upon the glorious splendor of Your majesty / And upon Your wondrous works I will muse** .
 
-**Footnotes** :
+## Footnotes :
 
 Josh. 1: 81 **Joshua was to be occupied with God's word and to let the word occupy him (cf. Col. 3:16). By being occupied and filled with the word, he would have prosperity and success in taking the God-promised good land** . See note 151 in Psa. 119.
 
 Psa 119:151 Rich in meaning, **the Hebrew word for muse** (often translated meditate in the KJV) **implies to worship, to converse with oneself, and to speak aloud. To muse on the word is to taste and enjoy it through careful considering. Prayer, speaking to oneself, and praising the Lord may also be included in musing on the word** . To muse on the word of God is to enjoy His word as His breath (2 Tim. 3:16) and thus to be infused with God, to breathe God in, and to receive spiritual nourishment.
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 We should not think that it is a waste of time to temporarily set aside other matters in our prayers while we meditate on God. God already knows our needs. **What touches His heart the most and gives Him the sweetest thought is our musing on Him in His presence. This is the reason the psalmist says, "May my musing be sweet to Him" (104:34)** . We should remain in His presence and behold Him in silence. **While we behold Him in this way, we inquire of Him, wait on Him, and muse on Him** . We can muse on His dealings with us and on His dealings with the saints of old. We can also muse on the sweetness of His person. We can meditate on His desire, love, patience, character, glory, and sweetness. **In this musing, we absorb God, and His elements fill us. We should gain this experience and learn this lesson.**
 
@@ -46,7 +46,7 @@ Good prayer often does not need many words. **At times we do not need to say any
 
 We should not only pray, but also sing and psalm. The Christians at the time of Paul probably sang the Old Testament psalms, perhaps using certain Jewish melodies. **We today should pray-read, sing-read, and even psalm-read. We should psalm the verses of the Bible. Singing the Word is more inspiring than merely reading it. Psalming is a type of singing that includes musing. Singing itself does not include much musing, but in psalming we muse upon the Word. At such times we may worship the Lord, have fellowship with Him, or even converse with ourselves in the Lord's presence. This is the way to receive nourishment from the Word** . By taking the Bible in this way we receive the riches of God through the Word. The written Word then becomes the channel through which God's riches are conveyed to us. **But if we would receive these riches, we must have a living, organic, dynamic contact with God whenever we touch the Word of God.** (_Life-Study of Exodus,_ Chapter 58, Section 1)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 165, s. 2** _
 

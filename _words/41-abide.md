@@ -17,13 +17,13 @@ John 15:4 **Abide in Me** and I in you. As the branch cannot bear fruit of itsel
 
 John 15:7 **If you abide in Me and My words abide in you,** ask whatever you will, and it shall be done for you.
 
-**Footnotes** :
+## Footnotes :
 
 1 John 2:6, note 1 (abides) To be in Christ is the beginning of the Christian life. Our being put in Christ was God's doing once for all (1 Cor. 1:30). **To abide in Christ is the continuation of the Christian life. This is our responsibility in our daily walk,** a walk that is a copy of Christ's walk on earth. See note 278.
 
 1 John 2:27, note 8 (abide): **The Greek word means to stay** (in a given place, state, relation, or expectancy); hence, to **abide, remain, and dwell** . To abide in Him is to abide in the Son and in the Father (v. 24). This is to remain and dwell in the Lord (John 15:4-5). It is also to abide in the fellowship of the divine life and to walk in the divine light (1:2-3, 6-7), i.e., abide in the divine light (v. 10). **We should practice this abiding according to the teaching of the all-inclusive anointing, that our fellowship with God (1:3, 6) may be maintained** .
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 **Our topic in this message is "How to Abide in Christ." It is this book of John which gives us the key. While chapter fifteen is the central chapter on this, the surrounding chapters are all related to it** . For many years I did not realize this. As a young man seeking after the Lord, I surely loved the word in John 15 on abiding. But I kept wondering how to do it. (_Life Messages_, p. 92)
 
@@ -51,7 +51,7 @@ To believe in the Lord is adequate for us to have the divine birth. **But to enj
 
 So when we speak of staying in the spirit, we mean in the blended spirit, in the mingled spirit. Hallelujah! We have a spirit, and our spirit has been regenerated, the Spirit of God dwells in our spirit and mingles Himself with our spirit making the two one spirit. **This**** is the spirit in which we have to remain. How can we remain in such a spirit? All the time we have to, "O Lord! O Lord!" The best way to keep you in your spirit and to save you from losing your temper is to "O Lord."** (_Perfecting Training_, p. 445)
 
-**Hymns**** :**
+## Hymns** :**
 
 _ **Hymn 812, ss. 3-5** _
 

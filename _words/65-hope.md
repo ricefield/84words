@@ -20,7 +20,7 @@ Rom. 15:4 For the things that were written previously were written for our instr
 
 1 Pet. 1:3 Blessed be the God and Father of our Lord Jesus Christ, who according to His great mercy has **regenerated us unto a living hope** through the resurrection of Jesus Christ from the dead,
 
-**Footnotes** :
+## Footnotes :
 
 1 Cor. 13:131 Faith receives the divine things (John 1:12) and substantiates the spiritual and unseen things (Heb. 11:1). **Hope reaps and partakes of the things substantiated by faith** (Rom. 8:24-25). Love enjoys the things received and substantiated by faith and **partaken of by hope** , for nourishing ourselves, building up others (8:1), and expressing God, thus fulfilling the entire law (Rom. 13:8-10). Such love causes us to grow in life for the development and use of the spiritual gifts, and it is the most excellent way to have the greater gifts. Hence, it is the greatest of the three abiding virtues. So we must pursue it (14:1).
 
@@ -30,7 +30,7 @@ Heb. 11:13 The unbelievers, being without Christ, have no hope (Eph. 2:12; 1 The
 
 The living hope, the hope of life, brought to the regenerated believers through regeneration, can be likened to the various expectations for the future brought to parents through the birth of a newborn babe; all such expectations hinge on the life of the newborn child. **Likewise, the life that we, the believers, have received through regeneration enables us to have a hope, with numerous aspects, for this age, for the coming age, and for eternity. In this age we have the hope of growing in life, of maturing, of manifesting our gifts, of exercising our functions, of being transformed, of overcoming, of being redeemed in our body, and of entering into glory. In the coming age we have the hope of entering into the kingdom, of reigning with the Lord, and of enjoying the blessings of the eternal life in the manifestation of the kingdom of the heavens. In eternity we have the hope of being in the New Jerusalem, where we will participate fully in the consummated blessings of the eternal life in its ultimate manifestation in eternity** . This living hope, the hope of life, hinges on the eternal life, which we received through regeneration. Only the divine life can enable us to grow in the divine life until we grow into the reality of the hope that is brought to us by that life. Thus we will obtain the various blessings mentioned above as our inheritance, which is incorruptible, undefiled, and unfading and is kept for eternity (vv. 3-4).
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 I would quote a word from Dean Alford: "The resurrection of Christ, bringing in life and the gift of the life-giving Spirit, is that which potentiates the new birth into a living hope." The concept here is deep. The resurrection of Christ potentiates our regeneration into a living hope. When we were regenerated, the resurrected Christ entered into us. He is not only the living One—He is also the resurrected One. **Now He is the life within us that potentiates the new birth and causes every aspect of our being to become living. Therefore, regeneration results in a living hope** (_Life-Study of 1 Peter,_ Chapter 3).
 
@@ -40,7 +40,7 @@ When some hear that we may enjoy the living hope today, they may argue and say, 
 
 **The hope of life is the enjoyment of eternal life** . **This enjoyment is not only for the future; it is for us to experience today. To enjoy this living hope is to enjoy eternal life. This eternal life enables us to change. Furthermore, the enjoyment of eternal life is the fulfillment of the hope of life** . Of course, the full enjoyment of eternal life will be in the future. But today we may have a foretaste. Then in the future we shall enjoy the full taste. But both the foretaste and the full taste are the fulfillment of the hope of this life. Therefore, this hope is actually the enjoyment of eternal life. (_Life-Study of 1 Peter,_ Chapter 4).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 298, s. 1 & chorus** _
 

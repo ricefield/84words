@@ -18,7 +18,7 @@ Exo. 16:33 And Moses said to Aaron, Take a pot, and **put an omerful of manna in
 
 Josh. 4:7 You shall tell them that the waters of the Jordan were cut off before the Ark of the Covenant of Jehovah; when it crossed over the Jordan, the waters of the Jordan were cut off. **Thus these stones will be for a memorial to the children of Israel forever.**
 
-**Footnotes** :
+## Footnotes :
 
 Exo 12:14, note 1 (memorial) This indicates that **we should remember Christ's redemption perpetually in a specific and detailed way** .
 
@@ -26,7 +26,7 @@ Exo 13:9, note 1 (memorial) Those who are sanctified by taking Christ as their S
 
 Exo 16:32, note 1 (omerful) The open manna, the manna that lay on the ground every morning, was for the enjoyment of God's people in a public way. However, the omer of manna placed in a pot (v. 33) was hidden and was not for the congregation in a public way. The amount of manna kept in a pot before Jehovah was one omer, the same as the amount gathered and eaten by the people (vv. 16-18). In spiritual experience, this indicates that the amount of Christ we eat is the amount we can preserve. The Christ whom we eat as open manna spontaneously becomes hidden manna by being digested and assimilated into our inner being. Furthermore, **whatever we eat of Christ will become a memorial in generations to come. The Christ whom we eat and enjoy will be an eternal memorial, because such a Christ becomes our very constitution, enabling us to build up and even to become God's dwelling place in the universe** .
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 If God leads you to walk a way that you know, it will not benefit you as much as if He would lead you to take the way that you do not know. This forces you to have hundreds and thousands of conversations with Him, **resulting in a journey that is an everlasting memorial between you and Him** . (_Collected Works of Watchman Nee, The (Set 1) Vol. 07: The Christian (5),_ Chapter 23)
 
@@ -40,7 +40,7 @@ The picture of the preserving of the manna in the golden pot is related to our e
 
 In this new beginning of life there must be no leaven. We have pointed out that in the Bible leaven signifies sinfulness or corruption. We need to deal with all sin that is exposed. We must not tolerate any sin after it has been exposed. **To eat unleavened bread in this way is to have a true memorial to the Lord, a genuine remembrance. Those who are sanctified by having Christ as their substitute and who have a new beginning of life without sin will have a daily living that is worthy of being a memorial** . If we have a proper experience of God's salvation, we shall have a marvelous spiritual history. After our Passover, we shall be sanctified to the Lord by taking Christ as our substitute to live in us. Then we shall have a new beginning of life, and all exposed sin will be dealt with. Such a living will be a memorial, a remembrance. **Every day we live this kind of life will be a day of memorial. In our Christian life every day should be such a memorial day** . Any day that is not a memorial is a day of defeat. (_Life-Study of Exodus_, Chapter 27)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 232, ss. 1, 2** _
 

@@ -20,11 +20,11 @@ Psa. 119:173 Let Your hand be ready to help me, / **For I have chosen Your prece
 
 Isa. 7:15 He will eat curds and honey until he knows how to refuse evil and **choose good** .
 
-**Footnotes** :
+## Footnotes :
 
 Ruth 1:16, note 1 **Ruth chose the goal of participating with God's elect in the enjoyment of Christ** , and she even became an important ancestor of Christ, one who helped bring forth Christ into mankind. **This was more than just a resolution on the part of the Moabite widow; it was a goal, a choosing. Ruth chose God and His kingdom for the carrying out of God's economy concerning Christ.**
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 God created man in a way that was good for man to take God, to receive God, into man as his life. Man was created by God with a mind, an emotion, and a will, and also with a spirit in the center of man's being as a receptacle for him to receive God. Thus, by his mind man can understand what God wants; by his emotion man can like, can love, can prefer, what God wants; and **by his free will man can make a decision to choose God, to take God** . Furthermore, man has a spirit as an organ, even a receptacle, to receive God into him as his life. This is God's intention in His creation of man (_Basic Lessons on Life,_ Chapter 1).
 
@@ -36,7 +36,7 @@ Human beings have a free will. God never infringes upon this and does not change
 
 We can all spend at least fifteen minutes to read and pray-read a few verses early every morning. Then we can find time to read a few chapters later in the day. **If we make a decision to practice this, we will be able to do it. We need to choose life by making a decision to practice this. We even need to make a deal with the Lord to spend time in the Word every morning so that we will be accountable to Him concerning this matter** (_Crucial Elements of God's Economy,_ Chapter 1).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 463** _
 

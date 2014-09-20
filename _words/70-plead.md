@@ -22,7 +22,7 @@ Acts 4: **31 And when they had so besought** , the place in which they were gath
 
 Rom. 11:2 God has not cast away His people whom He foreknew. **Or do you not know what the Scripture says in the passage concerning Elijah, how he pleads with God** against Israel? 3 "Lord, they have killed Your prophets, they have torn down Your altars; and I am left alone, and they are seeking my life."
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 **In the life of each one of us, there needs to be a period of time, perhaps lasting for several days, in which we thoroughly repent, confess our sins to God, and plead with Him to deal with our sins and with our sinful nature** . Furthermore, day by day we need to repent and confess. (_Life-Study of Psalms_, Chapter 23, Section 4)
 
@@ -32,7 +32,7 @@ Brothers, we need the anointing of the Spirit upon us. We need to learn to expec
 
 In summary, the Holy Spirit puts God's word into us. It is His responsibility to tell us what we should speak. But He leaves the decision of how and when we should speak to us. God entrusts us and believes in us. His charge is that the spirits of prophets be subject to prophets. How grave is the responsibility of the prophets! The way of the ministry of the word is the way of releasing God's word through man's mind and man's word. If our contribution is not up to the proper standard, God's word is no longer His word. This brings in serious consequences! It is easy for God to speak from the heavens. It is easy for Him to speak through the angels. But He loves us and has chosen us. It is indeed unfortunate if we become an obstacle to Him everywhere and in everything. We are often proven to be useless vessels. **In order for God to secure ministers of the word, we have to beg for mercy. We have to say to the Lord, "I will not let You go unless I receive mercy from You."** If we do not receive mercy from Him, His word will stop with us. Today the entire responsibility rests upon our shoulders. (_Collected Works of Watchman Nee, The (Set 3) Vol. 53_: The Ministry of God's Word, Chapter 4, Section 5)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 846, ss. 1-3** _
 

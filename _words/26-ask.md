@@ -20,7 +20,7 @@ John 16:23 And in that day you will ask Me nothing. Truly, truly, I say to you, 
 
 1 John 5:14 And this is the boldness which we have toward Him, that **if we ask anything according to His will, He hears us** . 15 And if we know that He hears us in whatever we ask, we know that we have the requests which we have asked from Him.
 
-**Footnotes**** :**
+## Footnotes** :**
 
 Zech 10:1, note 1 Rain here signifies blessing. **Here the Lord encourages His people to ask Him for His abundant blessing at the time when He is favorable toward them.**
 
@@ -32,7 +32,7 @@ Matt 6:8, note 1 Although God our Father knows our need, **we still must ask Him
 
 John 15:7, note 2 **When we abide in the Lord and let His words abide in us, we actually are one with Him,** and He works within us **. Then, when we ask in prayer for whatever we will, it is not only we who are praying; He too is praying, in our praying.** This kind of prayer is related to fruit-bearing (v. 8) and will surely be answered.
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 Suppose that there are many things here. Which one do you want? You must ask for at least one thing. You cannot say that anything will do. **God wants to know what you specifically want and what you specifically are asking for. Only then can He give it to you. Hence, to ask means to demand something specific. We have to ask** .
 
@@ -48,7 +48,7 @@ We should not consider the vision of the great mystery of the church to be a sma
 
 **In learning to follow the guidance of the Spirit, we have to ask what the Spirit is saying before we ask what the Bible is saying.**** The first thing we should ask is what the inner registration is telling us**. However, most people today first ask what the Bible says and do not ask what the Spirit within says. This is not normal. A New Testament believer has the Holy Spirit residing within. This is a precious thing. We have to learn to know the inner leading of the Holy Spirit within us. (_Collected Works of Watchman Nee, The (Set 2) Vol. 41:_ Conferences, Messages, and Fellowship (1), Chapter 26)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 776** _
 

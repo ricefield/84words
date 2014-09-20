@@ -20,7 +20,7 @@ Matt. 11:25 **At that time Jesus answered and said, I extol You, Father, Lord of
 
 Rom. 15:9 And that the Gentiles should glorify God for His mercy, as it is written, " **Therefore I will extol You among the Gentiles, and I will sing praise to Your name** ."
 
-**Footnotes** :
+## Footnotes :
 
 Psa 145:12 extol **Psalms 140—144 issue in the extolling and praising of God in Psa. 145 for God's reigning in Christ and His kingdom** (vv. 11-13).
 
@@ -28,7 +28,7 @@ S.S. 1:43 rejoice **The fellowship of Christ and His lover in her mingled spirit
 
 Matt. 11:252 extol Lit., **acknowledge with extolment** . **The Lord acknowledged with extolment the Father's way in carrying out His economy** . Although people, instead of responding to His ministry, slandered Him (vv. 16-19) and the leading cities rejected Him (vv. 20-24), He extolled the Father, acknowledging the Father's will. He did not seek prosperity in His work but sought the Father's will; His satisfaction and rest were not in being understood and welcomed by man but in being known by the Father (vv. 26-27).
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 Psalm 145 tells how the saints praise God for His reigning in Christ and His Kingdom. Verse 1 indicates that God is the King in Christ: **"I will extol thee, my God, O king; and I will bless thy name for ever and ever." To extol is higher and deeper than to praise. Here the Psalmist extols Christ as the King.** Verses 10 to 13 reveal that God's Kingdom is an everlasting kingdom with glory and majesty: "All thy works (all things on this earth) shall praise thee, O Lord; and thy saints shall bless thee. They shall speak of the glory of thy kingdom, and talk of thy power (power now comes from the city to the kingdom); to make known to the sons of men (all peoples, races, and nations in the entire earth) his mighty acts, and the glorious majesty of his kingdom." Now you can see how the praises of the Psalmists have turned to the reigning Christ and His Kingdom. In all the previous Psalms the praises have been mostly occupied with Christ, the house, and then the city. Now the praise concerns the reigning Christ and His glorious Kingdom over the entire earth. "Thy kingdom is an everlasting kingdom, and thy dominion endureth throughout all generations" (v. 13). (_Christ and the Church Revealed and Typified in the Psalms_, p. 220)
 
@@ -48,7 +48,7 @@ As the Lord was rebuking the cities, a third party was present. The Lord was the
 
 **This is something which we should particularly extol and designate. In the Lord's recovery we particularly extol and designate the truth concerning taking Christ as God's righteousness, that is, living a grafted life with Christ.** We do not establish our own righteousness but the righteousness of God, the subjective Christ. (_The Experience of God's Organic Salvation Equaling Reigning in Christ's Life_ p. 58)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 378** _
 

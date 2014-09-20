@@ -16,7 +16,7 @@ John 6:57 As the living Father has sent Me and I live because of the Father, **s
 
 1 Tim. 4:6 If you lay these things before the brothers, you will be a good minister of Christ Jesus, **being nourished with the words of the faith and of the good teaching which you have closely followed** .
 
-**Footnotes** :
+## Footnotes :
 
 Jer. 15:16, note 1 (ate) According to the entire revelation in the Holy Bible, **God's words are good for us to eat, and we need to eat them (Psa. 119:103; Matt. 4:4; Heb. 5:12-14; 1 Pet. 2:2-3). God's word is the divine supply as food to nourish us. Through the word as our food, God dispenses His riches into our inner being to nourish us that we may be constituted with His element.** This is a crucial aspect of God's economy. When we eat God's words, His word becomes our heart's gladness and joy.
 
@@ -30,7 +30,7 @@ John 6:57, note 1 (eats) To eat is to take food into us that it may be assimilat
 
 1 Pet. 2:2, note 4 (grow) To grow is a matter of life and in life. **We received the divine life through regeneration, and we need to grow in this life and with this life by being nourished with the milk conveyed in the word of God** .
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 Another important verse is 1 Timothy 4:6b: " **You will be a good minister of Christ Jesus,** _ **being nourished** _ **with the words of the faith.** " Perhaps you have been in Christianity for many years. Have you ever thought that we must be nourished in the Word of God? As a rule, we always think that we must be "taught" in the Word, by the Word, and with the Word. But how many Christians have noticed the word "nourished"? And how many have ever heard a message stressing the importance of being nourished in the Word?
 
@@ -44,7 +44,7 @@ It is correct to say that Christ nourishes the church with His life and with His
 
 **All the members of the church need to practice abiding in the Lord. There should be no insulation, no separation, between us and the Lord and no detachment from Him. As soon as we are detached from Him, the supply of nourishment is cut off. Along with abiding in the Lord constantly, we must daily come to the Word and take it in as our life and life supply. Then we will receive nourishment.** Furthermore, all the meetings of the church should be meetings of nourishment. Morning revival and our fellowship with the saints should also be times of nourishment. (_Conclusion of the New Testament, The (Msgs. 323-345),_ Chapter 21, Section 3).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 509, ss. 1-3** _
 

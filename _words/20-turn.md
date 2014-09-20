@@ -27,7 +27,7 @@ Acts 26:18 To open their eyes, **to turn them from darkness to light and from th
 
 1 Thes. 1:9 For they themselves report concerning us what kind of entrance we had toward you and **how you turned to God from the idols to serve a living and true God.**
 
-**Footnotes** :
+## Footnotes :
 
 Mat 3:2, note 1 **To repent** is to have a change of mind issuing in regret, **to have a turn in purpose** .
 
@@ -37,7 +37,7 @@ Mat 3:3, note 2 The way, similar to a street, and the paths, similar to lanes, a
 
 2 Cor 3:17, note 1 Or, furthermore, in addition. **When the heart turns to the Lord, the veil is taken away** . In addition to this, furthermore, the Lord is the Spirit, who would give us freedom. **Since the Lord is the Spirit, when the heart turns to Him, the veil is taken away and the heart is freed from the bondage of the letter of the law** .
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 When we were fallen, our heart was turned away from the Lord, but **when we repented, our heart turned to the Lord.**** The turning of the heart to the Lord is not once and for all. The heart must be turned to the Lord all the time, day by day. Every morning we must turn our heart again toward the Lord. After rising, we should go to the Lord and tell Him, "Lord, here I am. By Your mercy and grace I wish to turn my heart anew to You for this day **."** When our heart is turned to the Lord, the veil is gone **. Many people wonder why they do not have the Lord's guidance and why they do not know the Lord's will. But the problem is, where is their heart and in what direction is their heart turned? Their heart must be turned and tuned to the Lord.** When I was young, I prayed over 2 Corinthians 3:16 nearly every day: "Lord, cause me to turn my heart to You." I must testify that this kind of prayer works. I encourage you to try it **.** Before you read the Word in the morning, you should first turn your heart to the Lord**. If you do this, the veil will be gone, and there will be light. The veil between you and the Lord will be taken away by your turning your heart to Him, and you will see the light (_The Economy of God,_ Chapter 7).
 
@@ -47,7 +47,7 @@ Man's heart always turns to the world, but **only when man turns to God will God
 
 **If a person cannot turn to his spirit or be calm, he can start by reading the Word. He can then use the words of the Bible to calm his thoughts in order to turn to his spirit. He can turn any words that touch him into prayer** . **This is an easy way to turn to our spirit.** Some saints are able to turn directly to their spirit without any help. Whenever they want to pray, they only need to close their eyes, and they can stop their entire being…They are not bothered by distractions…Such a person is very experienced in his spirit; his spirit is very strong. He is able to control himself and is not bothered by anything. When he wants to pray, he can turn his entire being to his spirit (_How to Enjoy God and Practice the Enjoyment of God_, Chapter 19).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 1345** _
 

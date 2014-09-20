@@ -20,7 +20,7 @@ Hab. 2:20 - But Jehovah is in His holy temple: " **Be silent before Him** , all 
 
 Zech. 2:13 - **Hush, all flesh, before Jehovah** ! For He is roused up from His holy habitation.
 
-**Footnotes** :
+## Footnotes :
 
 Exo 20:8, note 1 See note 231 in ch. 16.The Sabbath signifies that God has done everything, completed everything, and prepared everything and that man must stop all his work. **To keep the Sabbath is to stop our work and to take God and all that He has accomplished for us as our enjoyment, rest, and satisfaction** . This is God's economy. See note 21 in Gen. 2.
 
@@ -28,7 +28,7 @@ Isa 40:31, note 1, par. 1 To wait on the eternal God (v. 28) means that we termi
 
 Isa 58:3, note 1 The real meaning of fasting is to stop eating all things other than the Lord Jesus and to not have a taste for anything other than Him. **God wants us to stop our doing and be replaced by Christ** (keep the Sabbath—56:2) and to keep away from the taste of anything other than Christ (fast). **By resting and fasting we can partake of all that the processed Christ has accomplished for us** . In totality, what Christ is and has accomplished is just the divine water (55:1), which is the consummated Spirit as the consummation of the Triune God for us to drink and enjoy (John 7:37-39; 1 Cor. 12:13).
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 When we contact God, we must exercise to turn our whole being to our spirit. We should seek Him in our spirit. **We close our eyes when we pray to stop from being distracted, turn to our spirit, and touch God.** For this reason we also should not be too quick to open our mouth. Rather, we should be calm and have a period of silence. Good prayer does not depend on an abundance of words. It is good to be silent at the beginning of our prayer, and it is also good to have a period of silence during our prayer. Many psalms in the Bible end with _ **selah** _ **. This is the equivalent of a rest note in music notation. It tells a person to stop, to halt for a while** . Because our words of prayer can distract us from the spirit, there is the need of a halt to bring our entire person back to the spirit. There are times, however, when we cannot stop; a stop may drive away the spirit. What we should do depends on the circumstance. **In prayer, we need to learn to be silent. There is no need to be in a hurry. We need to be at ease and quiet** (How to Enjoy God and How to Practice the Enjoyment of God, Chapter 12).
 
@@ -42,7 +42,7 @@ The stillness of the mind is not only a pause in the mind's activities, but also
 
 You may consider that you like to live Christ and because you can't make it, you need to fast, and you need to pray. You may want to do these things, but He doesn't. What is religion? Religion is that you and I would do something to please God. You and I would initiate something to please God. What is God's economy? God's economy is that He has prepared everything…According to Luke 15 everything was prepared for the prodigal son's return. When the son came home, the Father had the best robe put upon him… If the son never came back, how could the Father save him? **But if, after coming back, the son was too busy doing things, how could the robe be put upon him? The Father stopped the son's talking and put the robe upon him. Then he said to kill the fatted calf and to be merry. This is to be saved. To be saved simply means to turn to God and calm yourself down** . Let the Lord do everything, not only for you, but upon you and in you. The more we do to get salvation, the more the Lord is frustrated. He cannot do anything. This is a real picture of the situation with so many Christians. After turning to the Lord, they get involved in too much doing. Sometimes when the Lord would see that we are so active, He would just wait until we have done everything and have been thoroughly disappointed and have given up. When we are tired out the Lord would say, "Very good! Now is the time for you to be saved. Let Me save you. Don't do anything. Don't pray; let Me save you. Don't read the Bible, let Me save you. Don't do your good work, **let Me save you. Stop. Just turn to Me. Love Me, and tell Me you want Me.** You cannot do anything." (_Perfecting Training,_ Chapter 20).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 764, s. 1** _
 

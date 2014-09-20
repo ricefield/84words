@@ -14,7 +14,7 @@ Eph. 5:26 That He might **sanctify her, cleansing her by the washing of the wate
 
 Titus 3:5 Not out of works in righteousness which we did but according to His mercy He saved us, through **the washing of regeneration and the renewing of the Holy Spirit** .
 
-**Footnotes:**
+## Footnotes :
 
 Exo 30:18, note 1 **The laver typifies the washing power of the life-giving Spirit issuing from the death of Christ** . The locating of the laver after the altar signifies that the washing power of the laver comes out of God's judgment at the altar. After passing through God's full judgment at the altar (the cross), **the crucified Christ entered into resurrection and became the life-giving Spirit who washes us** (1 Cor. 15:45; 6:11; Titus 3:5). The dimensions of the laver are not given, signifying that the life-giving Spirit is immeasurable, unlimited (John 3:34).
 
@@ -42,7 +42,7 @@ Not only so, we should feel warm, as if we were sitting under the sun, and we sh
 
 **This is the way we should read the Bible for thirty minutes in the morning. Although we may not understand anything, we will take a bath in God's Word and feel warm in our spirit. We will not have the sense of being hot, scorched, or burned, but we will have an indescribably warm feeling and be refreshed, moistened, supplied, and satisfied. This is good Bible reading.** (_Lessons for New Believers_, Chapter 24).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 556, s.3** _
 

@@ -14,13 +14,13 @@ Matt. 26:6 Now when Jesus was in Bethany, in the house of Simon the leper, 7 **A
 
 John 14:21 He who has My commandments and keeps them, he is the one who loves Me; and he who loves Me will be loved by My Father, and I will love him and will manifest Myself to him. 23 Jesus answered and said to him, **If anyone loves Me, he will keep My word,** and My Father will love him, and We will come to him and make an abode with him.
 
-**Footnotes** :
+## Footnotes :
 
 Matt. 26:81 The disciples considered Mary's love offering to the Lord a waste. **Throughout the past twenty centuries thousands of precious lives, heart treasures, high positions, and golden futures have been "wasted" upon the Lord Jesus. To those who love Him in such a way He is altogether lovely and worthy of their offering** . What they have poured upon Him is not a waste but a fragrant testimony of His sweetness.
 
 Rom. 3:221, par.1 **Faith has an object, and it issues from its object. This object is Jesus, who is God incarnate. When man hears Him, knows Him, appreciates Him, and treasures Him, He causes faith to be generated in man, enabling man to believe in Him.** Thus, He becomes the faith in man by which man believes in Him. Hence, this faith becomes the faith in Him, and it is also the faith that belongs to Him.
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 **As those who lovingly sought God, the psalmists treasured the law of God.** Psalm 119:14 says, "I have rejoiced in the way of thy testimonies, as much as in all riches." **The psalmists treasured God's testimony as their wealth** . Psalm 119:72 continues, "The law of thy mouth is better unto me than thousands of gold and silver." Then in 119:127 the psalmist goes on to say, "Therefore I love thy commandments above gold; yea, above fine gold." These verses reveal that the psalmists not only loved God, but also treasured His law, which was to them the word of God and the testimony of God. **They valued God's law more than silver and gold. They treasured the word of God** (_Life-Study of Exodus,_ Chapter 52).
 
@@ -34,7 +34,7 @@ Verse 11 says, "Thy word have I hid in mine heart, that I might not sin against 
 
 Luke 1:37 says, "No word will be impossible [or powerless] with God." God's word is sharp and powerful. We must let the word of God dwell richly in our hearts, and we must allow His word to gain ground in us. We must also be able to use it as our weapon to withstand the devil. When the Lord was tempted by the devil in the wilderness, He overcame with the words of Scripture. **God's word is indeed sharp and powerful. Therefore, we should treasure His word and put our trust in His word** (_Collected Works of Watchman Nee, The (Set 2) Vol. 34: The Glorious Church,_ Chapter 10).
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 169** _
 

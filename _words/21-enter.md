@@ -21,7 +21,7 @@ Heb. 10:19 **Having therefore, brothers, boldness for entering the Holy of Holie
 
 Rev. 22:14 **Blessed are those who wash their robes that they may have right to the tree of life and may enter by the gates into the city.**
 
-**Footnotes** :
+## Footnotes :
 
 John 10:9, note 2 The pasture here signifies Christ as the feeding place for the sheep. When the pasture is not available (e.g., in the wintertime or at night), the sheep must be kept in the fold. When the pasture is ready, there is no further need for the sheep to remain in the fold. To be kept in the fold is transitional and temporary. To be in the pasture enjoying its riches is final and permanent. Before Christ came, the law was a ward, and being under the law was transitional. **Now that Christ has come, all God's chosen people must come out of the law and come into Him to enjoy Him as their pasture** (Gal. 3:23-25; 4:3-5). This should be final and permanent. Because they did not have such a revelation, the leaders in Judaism considered the law, on which Judaism was based, as permanent. As a result, they missed Christ and could not participate in Him as their pasture.
 
@@ -29,7 +29,7 @@ Heb 6:19, note 2 The heavens, into which **the Lord Jesus entered** , are today 
 
 Heb 10:19, note 1 The Holy of Holies today is in heaven, where the Lord Jesus is (9:12, 24). **How, then, can we enter the Holy of Holies while we are still on earth? The secret is our spirit, referred to in 4:12** . The very Christ who is in heaven is now also in our spirit (2 Tim. 4:22). As the heavenly ladder (Gen. 28:12; John 1:51), He joins our spirit to heaven and brings heaven into our spirit. Hence, **whenever we turn to our spirit, we enter into the Holy of Holies** . There we meet with God, who is on the throne of grace. See note 161 in ch. 4.
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 After showing us the heavenly Christ within the veil, the book of Hebrews encourages us to enter within the veil (10: 19-20, 22). Within the veil, we can look away unto Him (12:2) and can consider Him (12:3; 3:1). We need to have direct contact with Him. **Since He is within the veil, we also must enter within the veil that we may see Him, look at Him, and consider Him in order to receive the transfusion and infusion of Him** . **Of course, we can only do this by exercising our spirit.** As we have seen, our spirit is joined to the heavenly Holy of Holies. When we turn to our spirit and exercise it, we enter within the veil. Here we participate in the heavenly ministry of the heavenly Christ. Here we are saturated and permeated with all the divine riches that make us the corporate reproduction of the Firstborn Son of God for His expression. Here we receive grace and are strengthened to go outside the camp and follow Him on the pathway of the cross. (_Life-study of Hebrews_, p. 633)
 
@@ -41,7 +41,7 @@ it is difficult for Christian readers to understand why the writer of Hebrews me
 
 **When we enter within the veil by getting into our spirit, we taste the sweetness of the heavenly Christ that we may be enabled to go outside the camp, forsaking the earth and its love.** As we stay within the veil, we also have our spirit filled with the glory of the heavenly Christ that our heart may be freed from the possession of the earth's enjoyment outside the camp. Furthermore, within the veil we behold the glorified Christ that we may be attracted to follow the suffering Jesus outside the camp. Beholding His countenance in heaven enables us to trace His footsteps on earth. **As we enter within the veil, we are infused with resurrection power (Phil. 3:10) that we may be empowered to walk the pathway of the cross outside the camp** . (_Life-study of Hebrews_, p. 639)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 549** _
 

@@ -16,13 +16,13 @@ Isa. 30:18 And therefore Jehovah waits to be gracious to you, / And therefore He
 
 Isa. 40:31 **Yet those who wait on Jehovah will renew their strength** ; / They will mount up with wings like eagles; / They will run and will not faint; / They will walk and will not become weary.
 
-**Footnotes** :
+## Footnotes :
 
 Isa 40:31, note 1, par.1 **To wait on the eternal God (v. 28) means that we terminate ourselves, i.e., that we stop ourselves with our living, our doing, and our activity, and receive God in Christ as our life, our person, and our replacement. Such a waiting one will be renewed and strengthened to such an extent that he will mount up with wings like eagles. He will not only walk and run but also soar in the heavens, far above every earthly frustration. This is a transformed person** . This chapter leads us to a comparison between Hezekiah, a godly man who was still in the old creation (chs. 36—39), and a regenerated and transformed person in the new creation.
 
 Isa 40:31, note 2 The eagles' wings signify the resurrection power of Christ, God's power in life, becoming our grace (cf. 1 Cor. 15:10; 2 Cor. 4:7; 12:9a). **Those who stop themselves and wait on Jehovah will experience the power of resurrection, will be transformed, and will soar in the heavens** (cf. Phil. 4:13; Col. 1:11).
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 Many people think that they need to wait on God when He does not answer their prayers. Generally speaking, this can be considered as waiting on the Lord. This is an outward waiting. **However, we are speaking of the waiting that transpires in our spirit** . Suppose we are calm and turn to our spirit, but we do not sense that we have the presence of God. As a spiritual fact God never leaves us, but in our experience we may sense that He is far away or that He is near us **. At times we may feel that He is near, but He has not initiated anything. When this happens, we should not say anything quickly. Rather, we should spend some time to wait in His presence** .
 
@@ -40,7 +40,7 @@ Therefore, when we pray, we must not only turn to our spirit, but **we must also
 
 We should allow God's Spirit to lead us into His heart. We should spend time to learn this lesson. When we first begin to pray in this way, there is no need to say or consider much. Our heart should be calm and undisturbed. We can bring the things we have encountered into God's presence and consider them, or we can forget about these things and simply meditate on God's Word. We can remain in His presence, touching God in our spirit and allowing God to touch us in the spirit. **Actually, we do not have to go to God to touch Him; we can simply wait on Him. While we wait on Him in this way, something will come to our attention, and we will gain something. Then we will touch God's desire. The greatest wisdom comes from this kind of waiting. In this way our desires are mingled with God's desires, and our thoughts are one with God's thoughts. Based on this, we can pray to God.** (_The Collected Works of Watchman Nee, vol. 38, pp.453-454_)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 792** _
 

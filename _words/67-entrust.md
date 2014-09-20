@@ -20,13 +20,13 @@ Acts 20:32 And **now I commit you to God and to the word of His grace** , which 
 
 2 Tim. 1:12 For which cause also I suffer these things; but I am not ashamed, for I know whom I have believed, **and I am persuaded that He is able to guard my deposit unto that day** .
 
-**Footnotes** :
+## Footnotes :
 
 2 Tim 1:123 The apostle believed not a thing or a matter but a living person, Christ, the Son of the living God, who is the embodiment of divine grace and eternal life. The eternal life in Him is powerful; it is more than able to sustain to the end the one who suffers for His sake, and to preserve him for the inheritance of the coming glory. The grace in Him was more than sufficient to provide His sent one with all he needed for finishing the course of his ministry unto a reward in glory (4:7-8). Hence, He was able to guard that which the apostle had committed unto Him for the day of His return. Such an assurance must also have been an encouragement and strengthening to the enfeebled and sorrowful Timothy.
 
 2 Tim 1:124 Or, that which I have committed unto Him. The apostle committed his entire being with his glorious future unto the One who was able, through His life and grace, to guard his deposit for the day of His second appearing.
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 Now we know that only Christ can overcome. We also know that Christ is living within us. We know moreover that when we believe, we have Christ. Yet day after day we remain the same and nothing is changed. What should we do so that we can let Christ live His life out of us? There are two ways or, one may say, two conditions.
 
@@ -38,7 +38,7 @@ What are the necessary conditions for us to be guarded by the Lord? There are tw
 
 Second, we have to believe in the Lord's guarding power. First Peter 1:5 says that we are being guarded by the power of God "through faith." In order for us to experience the Lord's guarding, committing ourselves to Him is not enough. We also have to believe in God's guarding power. Suppose I asked Brother Luk to take a sum of money to another person. I have to believe that Brother Luk has the power to guard the money I committed to him. If I truly believe in him and commit the money to him, I will not need to go repeatedly to him and ask if my money is still in his hand. **After we have committed ourselves to the Lord, we do not have to repeatedly ask Him what He is going to do. Will the God of the heavens and earth not guard us well? God's word upholds all things. Is He not able to uphold us? God does not guard us as if He were guarding a piece of worthless paper. No! He guards us like the pupil of His eye** (Deut. 32:10). In the same way that a finger is joined to the body, He has joined us to Himself and constituted us members of Christ by His life. We have to believe that He is well able to guard us. Our eyes should be set on the Lord and not on our experience. The only things that are trustworthy are the Lord's power His Word and His love. Our experience is not trustworthy at all. **For I know whom I have believed and I am persuaded that He is able to guard my deposit unto that day (2 Tim. 1:12)** . (Collected Works of Watchman Nee, Vol. 41, pp. 127-128)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 680** _
 

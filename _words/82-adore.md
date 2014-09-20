@@ -21,13 +21,13 @@ Rom. 9:5 Whose are the fathers, and out of whom, as regards what is according to
 
 Rev. 5:12 Saying with a loud voice, **Worthy is the Lamb who has been slain to receive the power and riches and wisdom and strength and honor and glory and blessing** .
 
-**Footnotes** :
+## Footnotes :
 
 1 Pet. 2:42 [precious] Or, held in honor; differing from the word used in 1:19. There the word denotes preciousness in essence; **here it indicates preciousness that is recognized and held in honor by men** .
 
 1 Pet. 2:71 In Greek, a word kindred to precious in vv. 4, 6. **The very Christ chosen by God as a stone, even a cornerstone that is precious to God, is the preciousness to His believers** ; but to the unbelievers He is a rejected, despised stone.
 
-**Ministry Excerpts** :
+## Ministry Excerpts :
 
 When a new believer prays with Matthew 1:1, he may not know who David and Abraham are. **He may simply pray, "O Lord Jesus, I do not know who David is or who Abraham is. But I do know that You, Lord, are the Son of God who became the Son of David. O Lord, You are the Son of God, but You became the Son of Man. Lord, I praise You, I adore You, and I worship You. You are God, but You became a man." If this believer reads the word in this way, he will receive not knowledge but the living Christ Himself.** The more he prays in this way, the more the living Christ will be prayed into him. After reading and praying in this way for several minutes, he will be filled, satisfied, and refreshed. (_Enjoying Christ as the Word and the Spirit through Prayer_, Chapter 3, Section 3, p. 31)
 
@@ -43,7 +43,7 @@ At first, some may begin their prayer by saying, "Lord, I confess that I do not 
 
 Romans 9:5 says, "Whose are the fathers, and out of whom, as regards what is according to flesh, is the **Christ, who is God over all, blessed forever. Amen** ." The Jehovah's Witnesses have a subtle, evil, and satanic way to distort this verse. We must be clear that Christ is God over all, which means that He is above all the created things, and He is blessed forever. **The word blessed here means praised, well spoken of, with adoration of respect and desire. We adore God with our respect to Him and our desire for Him.** We worship Him in this way. We desire to have Him, and we love Him. **We have to speak well of Christ as God to tell the whole universe what He is. This is our blessing Him to praise Him with our adoration.**** Christ is our God above all things and is worthy to be praised with well-speaking of adoration, respect, and desire. **(_Crystallization-study of John,_ Chapter 5, Sec. 2, pp. 57-58)
 
-**Hymns** :
+## Hymns :
 
 _ **Hymn 85** _
 
