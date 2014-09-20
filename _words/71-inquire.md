@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Inquire
-categories: word
+categories: worshipping
 ---
 
 **Scriptures** :

@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Entrust
-categories: word
+categories: dealing
 ---
 
 **Dictionary definition** : to charge or **invest with a trust** or responsibility; **to commit** (something) in trust to; **to confide** , as for care, use, or performance.

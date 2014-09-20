@@ -1,8 +1,8 @@
 ---
 layout: word
 title: Consider
-subheading: "consider Him"
-categories: word
+subheading: "Consider Him"
+categories: assimilating
 ---
 
 **Scriptures** :

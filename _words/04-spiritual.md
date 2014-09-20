@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Spiritual
-categories: word
+categories: first
 ---
 
 **Scriptures** :

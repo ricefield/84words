@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Fear
-categories: word
+categories: dealing
 ---
 
 **Scriptures** :

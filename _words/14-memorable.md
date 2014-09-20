@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Memorable
-categories: word
+categories: first
 ---
 
 memorial

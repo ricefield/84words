@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Extol
-categories: word
+categories: worshipping
 ---
 
 Praise highly, laud

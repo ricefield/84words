@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Worship
-categories: word
+categories: worshipping
 ---
 
 extol

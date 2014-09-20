@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Remember
-categories: word
+categories: beholding
 ---
 
 **Scriptures** :

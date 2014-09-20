@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Constant
-categories: word
+categories: first
 ---
 
 continual

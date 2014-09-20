@@ -2,7 +2,7 @@
 layout: word
 title: Abide
 subheading: "dwell and remain"
-categories: word
+categories: beholding
 ---
 
 remain, stay

@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Fresh
-categories: word
+categories: first
 ---
 
 new

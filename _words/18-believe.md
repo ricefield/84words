@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Believe
-categories: word
+categories: approaching
 ---
 
 **Scriptures** :

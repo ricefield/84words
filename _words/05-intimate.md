@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Intimate
-categories: word
+categories: first
 ---
 
 **Scriptures** :

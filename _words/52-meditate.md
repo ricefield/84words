@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Meditate
-categories: word
+categories: assimilating
 ---
 
 Consider, ponder, mind

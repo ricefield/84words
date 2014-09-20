@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Strong
-categories: word
+categories: first
 ---
 
 **Scriptures** :

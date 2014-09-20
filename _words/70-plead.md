@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Plead
-categories: word
+categories: dealing
 ---
 
 plea, beg, besought

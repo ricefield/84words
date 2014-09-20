@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Personal
-categories: word
+categories: first
 ---
 
 **Scriptures** :

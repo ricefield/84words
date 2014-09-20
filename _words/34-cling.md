@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Cling
-categories: word
+categories: beholding
 ---
 
 hold, embrace, cleave

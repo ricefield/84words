@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Humble
-categories: word
+categories: dealing
 ---
 
 lowly

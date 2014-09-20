@@ -1,8 +1,8 @@
 ---
 layout: word
 title: Turn
-subheading: return
-categories: word
+subheading: Return
+categories: approaching
 ---
 
 Return

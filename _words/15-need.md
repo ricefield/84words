@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Need
-categories: word
+categories: approaching
 ---
 
 **Scripture Reading** :

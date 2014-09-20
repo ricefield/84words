@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Hope
-categories: word
+categories: dealing
 ---
 
 hoping in Him, daily hope

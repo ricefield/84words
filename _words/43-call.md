@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Call
-categories: word
+categories: assimilating
 ---
 
 breathe, inhale, invoke

@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Consecrate
-categories: word
+categories: dealing
 ---
 
 **Scriptures:**

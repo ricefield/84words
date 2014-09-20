@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Divine
-categories: word
+categories: first
 ---
 
 ###Scriptures:

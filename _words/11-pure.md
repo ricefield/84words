@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Pure
-categories: word
+categories: first
 ---
 
 **Scriptures** :

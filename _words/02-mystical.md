@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Mystical
-categories: word
+categories: first
 ---
 
 _Mysterious_

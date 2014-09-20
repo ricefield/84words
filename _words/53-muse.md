@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Muse
-categories: word
+categories: assimilating
 ---
 
 **Scriptures** :

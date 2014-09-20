@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Gaze
-categories: word
+categories: beholding
 ---
 
 behold, look intently

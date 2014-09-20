@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Offer
-categories: word
+categories: dealing
 ---
 
 consecrate, vow, devote, surrender

@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Cast
-categories: word
+categories: dealing
 ---
 
 commit

@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Affectionate
-categories: word
+categories: first
 ---
 
 **Scriptures** :

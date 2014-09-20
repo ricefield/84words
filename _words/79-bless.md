@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Bless
-categories: word
+categories: worshipping
 ---
 
 speak well of

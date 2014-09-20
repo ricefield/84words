@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Knock
-categories: word
+categories: approaching
 ---
 
 **Scriptures** :

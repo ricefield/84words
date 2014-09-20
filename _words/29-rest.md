@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Rest
-categories: word
+categories: beholding
 ---
 
 Sabbath

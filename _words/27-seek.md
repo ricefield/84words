@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Seek
-categories: word
+categories: approaching
 ---
 
 **Scriptures** :

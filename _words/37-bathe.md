@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Bathe
-categories: word
+categories: beholding
 ---
 
 **Scriptures** :

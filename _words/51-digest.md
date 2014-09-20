@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Digest
-categories: word
+categories: assimilating
 ---
 
 assimilate, absorb

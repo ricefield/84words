@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Love
-categories: word
+categories: beholding
 ---
 
 **Scriptures** :

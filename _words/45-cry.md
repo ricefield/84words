@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Cry
-categories: word
+categories: assimilating
 ---
 
 desperation, audible, loud, tears

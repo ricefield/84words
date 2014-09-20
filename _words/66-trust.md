@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Trust
-categories: word
+categories: dealing
 ---
 
 **Dictionary definition** : reliance on [the](http://dictionary.reference.com/browse/the)integrity, strength, ability, surety, of a person or thing; confidence.

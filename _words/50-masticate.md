@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Masticate
-categories: word
+categories: assimilating
 ---
 
 chew, ruminate

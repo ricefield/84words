@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Touch
-categories: word
+categories: beholding
 ---
 
 contact, grasp, handle

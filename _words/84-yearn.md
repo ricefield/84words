@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Yearn
-categories: word
+categories: worshipping
 ---
 
 earnest strong desire, long, feel affection

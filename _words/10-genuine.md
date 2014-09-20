@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Genuine
-categories: word
+categories: first
 ---
 
 sincere, truthful
