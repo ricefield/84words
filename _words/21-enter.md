@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Enter
-subheading: "enter within the veil"
+subheading: "Enter within the veil"
 categories: word
 ---
 

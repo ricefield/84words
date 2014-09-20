@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Turn
-subheading: return
+subheading: Return
 categories: word
 ---
 

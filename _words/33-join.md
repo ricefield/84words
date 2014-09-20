@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Join
-subheading: "joining ourselves to Him"
+subheading: "Joining ourselves to Him"
 categories: word
 ---
 

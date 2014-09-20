@@ -1,7 +1,7 @@
 ---
 layout: word
 title: Consider
-subheading: "consider Him"
+subheading: "Consider Him"
 categories: word
 ---
 
