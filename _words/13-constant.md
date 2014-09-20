@@ -38,7 +38,7 @@ As we have seen, the leading of the Spirit is just the Spirit Himself who is so 
 
 We all love the Lord, but I would like to tell you that the best love we can render to the Lord is not doing anything before looking at Him. I don't say looking unto Him. Unto Him may indicate that He is far away from you, in the heavens. I mean looking at Him, realizing He is not only with you, but in you. **You need such an intimate contact, even such an instant and constant contact with Him. You must learn to build up such a habit. If we all could live this way, what a revolution it would make in our daily life!** Please take this word in a simple way. (_Perfecting Training_, Chapter 50, pp. 539-540)
 
-## Hymns** :**
+## Hymns :
 
 _ **Hymn 812** _
 

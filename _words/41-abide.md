@@ -51,7 +51,7 @@ To believe in the Lord is adequate for us to have the divine birth. **But to enj
 
 So when we speak of staying in the spirit, we mean in the blended spirit, in the mingled spirit. Hallelujah! We have a spirit, and our spirit has been regenerated, the Spirit of God dwells in our spirit and mingles Himself with our spirit making the two one spirit. **This**** is the spirit in which we have to remain. How can we remain in such a spirit? All the time we have to, "O Lord! O Lord!" The best way to keep you in your spirit and to save you from losing your temper is to "O Lord."** (_Perfecting Training_, p. 445)
 
-## Hymns** :**
+## Hymns :
 
 _ **Hymn 812, ss. 3-5** _
 

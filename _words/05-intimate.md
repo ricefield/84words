@@ -34,7 +34,7 @@ S.S. 1:2, note 1: The kisses of the mouth are the most intimate kisses. This yea
 
 In the Father's presence we not only enjoy grace, the expression of love, but we also enjoy love itself. **We experience this love in a very intimate way.**** Because we enjoy the love of God in such an intimate way, we do not want to do anything that displeases the Father **. The Father hates fornication, uncleanness, and lust. If we walk in love, we shall stay away from such things. Because we love the Father, we shall not do anything to grieve His heart. What a tender, delicate walk this is! This is not simply living by grace; it is walking in love. We should always remember that we are children of God enjoying His love. We are saints separated unto Him and saturated with Him. Therefore, in our daily walk** we would always take care of the Father's feeling, for we live intimately in His tender love** (_Life-Study of Ephesians,_ Chapter 50).
 
-## Hymns** :**
+## Hymns :
 
 _ **Just One Touch ss. 1-3** _
 

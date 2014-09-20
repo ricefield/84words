@@ -20,7 +20,7 @@ John 16:23 And in that day you will ask Me nothing. Truly, truly, I say to you, 
 
 1 John 5:14 And this is the boldness which we have toward Him, that **if we ask anything according to His will, He hears us** . 15 And if we know that He hears us in whatever we ask, we know that we have the requests which we have asked from Him.
 
-## Footnotes** :**
+## Footnotes :
 
 Zech 10:1, note 1 Rain here signifies blessing. **Here the Lord encourages His people to ask Him for His abundant blessing at the time when He is favorable toward them.**
 

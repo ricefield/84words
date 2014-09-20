@@ -16,7 +16,7 @@ Matt. 5:3 **Blessed are the poor in spirit** , for theirs is the kingdom of the 
 
 Luke 1:53 - **The hungry He has filled with good things** , and the rich He has sent away empty.
 
-## Footnotes** :**
+## Footnotes :
 
 Matt. 5:3, note 2 **To be poor in spirit is not only to be humble but also to be emptied in our spirit, in the depth of our being, not holding on to the old things of the old dispensation but unloaded to receive the new things, the things of the kingdom of the heavens.**
 

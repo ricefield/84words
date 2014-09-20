@@ -42,7 +42,7 @@ The church life is constituted of those in the pattern of the Apostle Paul. **We
 
 When we were saved, Christ came into our spirit. Now we must give Him the opportunity to spread Himself throughout all the parts of our inner being. **As we are strengthened into the inner man, the door is opened for Christ to spread in us, to spread from our spirit to every part of our mind, emotion, and will. The more Christ spreads within us, the more He settles down in us and makes His home in us** . This means that He occupies every part of our inner being, possessing all these parts and saturating them with Himself. As a result, not only do we receive the revelation, but we also are filled with Christ. Then wherever we may go, we shall be the apostles, the sent ones, and the prophets, those who speak for Christ. (_Life-Study of Ephesians_, Chapter 32, Section 3)
 
-## Hymns** :**
+## Hymns :
 
 _ **Hymns 782, ss. 3, 4 and 7** _
 

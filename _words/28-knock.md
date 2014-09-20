@@ -26,7 +26,7 @@ Luke 18:1 And He told them a parable to the end that they ought always to pray a
 
 8 I tell you that He will carry out their avenging quickly. Nevertheless, when the Son of Man comes, will He find faith on the earth?
 
-## Footnotes** :**
+## Footnotes :
 
 Mat 7:7, note 1 **First ask, then seek, and last knock.** To ask is to pray in a common way, to seek is to supplicate in a specific way, and **to knock is to demand in the most intimate and most earnest way.**
 

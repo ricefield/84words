@@ -20,7 +20,7 @@ John 16:4 But **these things I have spoken to you that when their hour comes you
 
 2 Pet. 3:2 **So that you would remember the words** spoken before by the holy prophets and the commandment of the Lord and Savior preached by your apostles.
 
-## Ministry Excerpts** :**
+## Ministry Excerpts :
 
 Psalm 119:132 says, "Look thou upon me, and be merciful unto me, as thou usest to do unto those that love thy name." This verse indicates that the psalmist loved the Lord's name. **Verse 55 says, "I have remembered thy name, O Jehovah, in the night, and have kept thy law" (Heb.). When the psalmist awoke during the night, he remembered the Lord's name. What we remember in the night reveals our true interest, even the thing that occupies us. What do you think of when you wake up at night? If you are one who seeks God, you will remember His name** . His name will be your special interest. Young people, I hope that when you awake during the night, you will not dwell on worldly things, but will remember the sweet, precious name of the Lord. **Like the Old Testament saints, may we all love the Lord's name and remember it, even in the middle of the night** . (_Life-Study of Exodus,_ Message 56, pp. 658-659)
 

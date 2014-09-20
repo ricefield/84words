@@ -26,7 +26,7 @@ Because the seeker is full of hunger and thirst, her mouth spontaneously utters,
 
 **We all need this kind of personal, affectionate, intimate contact with the Lord every day** . This has become my habit. Every morning after rising up I go to my desk and the first thing I say is, "Lord Jesus, I love You." I am not just a poor man praying to a merciful God, but I am **contacting a Savior who is personal and affectionate to me, as I am personal and affectionate to Him** . We all need to take heed to what the seeker says: "Let him kiss me with the kisses of his mouth!" Right away her tone changes: "Your love is better than wine." This is **a** personal, intimate prayer. "Draw me; we will run after you." **This is personal and affectionate** . **We need this kind of personal and affectionate seeking after Him, and we need to build up such a relationship with Him that is so personal and affectionate** . (_Crystallization-Study of Song of Songs,_ Chapter 1, Section 4)
 
-**Hymns:**
+## Hymns :
 
 _ **Hymn 1154** _
 

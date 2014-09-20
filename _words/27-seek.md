@@ -26,7 +26,7 @@ Col. 3:1 If therefore you were raised together with Christ, **seek the things wh
 
 Heb. 11:6 But without faith it is impossible to be well pleasing to Him, for he who comes forward to God must believe that He is and that **He is a rewarder of those who diligently seek Him** .
 
-## Footnotes** :**
+## Footnotes :
 
 Gen. 5:24, note 1 Enoch was the first person to be raptured. By this he escaped death, the ultimate issue of man's fall (Heb. 11:5). This first mentioning of the rapture establishes the principle of the rapture: our being raptured depends on our being mature in the divine life by our walking with God. Enoch walked with God day and night for three hundred years. According to Heb. 11:5-6, **he did this by faith, believing that God is and that He is a rewarder of those who diligently seek Him. After three hundred years of seeking God and walking with Him, Enoch was taken by God, thus obtaining the reward of not seeing death.**
 

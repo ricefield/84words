@@ -6,7 +6,7 @@ categories: first
 
 memorial
 
-## Scriptures** :**
+## Scriptures :
 
 Exo. 12:14 **And this day will be a memorial to you** , and you shall keep it as a feast to Jehovah; throughout your generations as a perpetual statute you shall keep it as a feast.
 

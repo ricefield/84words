@@ -6,7 +6,7 @@ categories: beholding
 
 behold, look intently
 
-**Definition**** :**
+**Definition** :
 
 To look at, to behold, expressing the calm, intent, continuous contemplation of an object which remains before the spectator.
 
@@ -22,7 +22,7 @@ Heb. 12:2 **Looking away unto Jesus, the Author and Perfecter of our faith** , w
 
 1 John 1:1 That which was from the beginning, which we have heard, **which we have seen with our eyes, which we beheld** and our hands handled, concerning the Word of life.
 
-## Footnotes** :**
+## Footnotes :
 
 2 Cor. 3:18, note 1 But indicates that we believers are different from the children of Israel. They were veiled, but **we with unveiled face behold and reflect like a mirror the glory of the Lord and are thus being transformed into the same image as the Lord from glory to glory** .
 
