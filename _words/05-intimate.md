@@ -1,7 +1,6 @@
 ---
-layout: post
+layout: word
 title: Intimate
-subheading: Words that Define Our Personal Relationship with the Lord
 categories: word
 ---
 

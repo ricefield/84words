@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: word
 title: Adore
 subheading: "Oh come let us adore Him"
 categories: word

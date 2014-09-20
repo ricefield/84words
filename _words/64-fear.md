@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: word
 title: Fear
 categories: word
 ---

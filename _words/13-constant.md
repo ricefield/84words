@@ -1,7 +1,6 @@
 ---
-layout: post
+layout: word
 title: Constant
-subheading: Words that Define Our Personal Relationship with the Lord
 categories: word
 ---
 

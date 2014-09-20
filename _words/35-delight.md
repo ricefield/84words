@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: word
 title: Delight
 categories: word
 ---
