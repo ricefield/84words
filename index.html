@@ -17,21 +17,58 @@ title: 84 Precious Words
 
       <div>
       {% for word in site.words %}
-        <span><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+        {% if word.categories contains "first" %}
+          <span class="word"><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+        {% endif %}
       {% endfor %}
-    </div>
+      </div>
 
       <h2>Words that describe our personal fellowship with the Lord</h2>
 
         <h3>Approaching</h3>
+          <div>
+          {% for word in site.words %}
+            {% if word.categories contains "approaching" %}
+              <span class="word"><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+            {% endif %}
+          {% endfor %}
+          </div>       
 
         <h3>Beholding</h3>
+          <div>
+          {% for word in site.words %}
+            {% if word.categories contains "beholding" %}
+              <span class="word"><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+            {% endif %}
+          {% endfor %}
+          </div>
 
         <h3>Assimilating</h3>
+          <div>
+          {% for word in site.words %}
+            {% if word.categories contains "assimilating" %}
+              <span class="word"><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+            {% endif %}
+          {% endfor %}
+          </div>
 
         <h3>Dealing</h3>
+          <div>
+          {% for word in site.words %}
+            {% if word.categories contains "dealing" %}
+              <span class="word"><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+            {% endif %}
+          {% endfor %}
+          </div>
 
         <h3>Worshipping</h3>
+          <div>
+          {% for word in site.words %}
+            {% if word.categories contains "worshipping" %}
+              <span class="word"><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+            {% endif %}
+          {% endfor %}
+          </div>
 
     </main>
   </div>
