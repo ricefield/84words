@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: word
 title: Divine
 categories: first
 ---

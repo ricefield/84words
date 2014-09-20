@@ -1,17 +1,32 @@
 ---
 layout: default
 ---
-<div class="word">
 
-  <header class="word-header">
-    <h1 class="word-title">{{ page.title }}</h1> {% unless page.subheading == "" %}<h3>({{page.subheading}})</h3>{% endunless %}
-    <br />
-    <p class="word-meta">{{ page.date | date: "%b %-d, %Y" }}{% if page.author %} • {{ page.author }}{% endif %}{% if page.meta %} • {{ page.meta }}{% endif %}</p>
-  </header>
-
-  <article class="word-content">
-    {{ site.category-heading}}
-    {{ content }}
-  </article>
-
-</div>
+<div class="top-strip"></div>
+<main class="content">
+    <section class="container">
+    	<div class="row-fluid">
+    		<article class="text-left">
+				<a href="/">
+          <i class="fa fa-angle-left"></i> 84 Words
+				</a>
+			</article>
+			<article class="post">
+				<h5>{{ page.date | date: "%d %B %Y" }}</h5>
+				<h2 class="content">{{page.title}}</h2>
+				<section>
+					{{ content }}
+					<hr>
+				</section>
+				<section style="font-weight:bold; margin-bottom: 2em;">
+					{% if page.previous %} 
+							<a rel="prev" class="a-hover"href="{{ page.previous.url }}"><i class="icon-double-angle-left"></i> {{ page.previous.title }}</a>
+						{% endif %}
+						{% if page.next %} 
+							<a rel="next" style="float:right" class="a-hover"href="{{ page.next.url }}">{{ page.next.title }} <i class=" icon-double-angle-right"></i></a>
+					{% endif %}
+				</section>
+			</article>
+		</div>
+	</section>
+</main>
