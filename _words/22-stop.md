@@ -6,7 +6,7 @@ categories: approaching
 
 Cease, silent
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 4:4b Consider in your heart upon your bed, / **And be silent. Selah**
 

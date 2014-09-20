@@ -6,7 +6,7 @@ categories: worshipping
 
 Praise highly, laud
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 30:1 **I extol You, O Jehovah, for You have drawn me up** / And have not let my enemies rejoice over me.
 

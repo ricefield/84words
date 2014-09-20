@@ -6,7 +6,7 @@ categories: worshipping
 
 delight, exult, joy
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 85:6 Will You not again **revive us, / That Your people may rejoice in You** ?
 

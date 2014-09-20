@@ -4,7 +4,7 @@ title: Nourish
 categories: assimilating
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Jer. 15:16 **Your words were found and I ate them** , / And Your word became to me / The gladness and joy of my heart, / For I am called by Your name, / O Jehovah, God of hosts.
 

@@ -6,7 +6,7 @@ categories: dealing
 
 hoping in Him, daily hope
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 43:5 Why are you cast down, O my soul? / And why are you disquieted within me? / **Hope in God** , for I will yet praise Him, / The salvation of my countenance and my God.
 

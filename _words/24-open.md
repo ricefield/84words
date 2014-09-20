@@ -4,7 +4,7 @@ title: Open
 categories: approaching
 ---
 
-**Scriptures** :
+## Scriptures :
 
 S. S. 5:2 I sleep, but my heart is awake. / A sound! My beloved is knocking. / **Open to me, my sister, my love** , / My dove, my perfect one; / For my head is drenched with dew, / My locks with the drops of night. 5 **I rose up to open to my beloved;** / And my hands dripped with myrrh, / My fingers with liquid myrrh, / Upon the handles of the bolt.
 

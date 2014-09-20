@@ -4,7 +4,7 @@ title: Strong
 categories: first
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Neh. 8:10b And do not be grieved, **for the joy of Jehovah is your strength** . 12 And all the people went their way to eat and to drink and to send portions and to make **great rejoicing, because they had understood the words that were declared to them** .
 

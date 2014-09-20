@@ -4,7 +4,7 @@ title: Pure
 categories: first
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 73:1 Surely God is good to Israel, / **To those who are pure in heart 25 Whom do I have in heaven but You? / And besides You there is nothing I desire on earth.**
 

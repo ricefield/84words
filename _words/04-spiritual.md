@@ -4,7 +4,7 @@ title: Spiritual
 categories: first
 ---
 
-**Scriptures** :
+## Scriptures :
 
 S. S. 1:4b The king has **brought me into**** his chambers**— / We will be glad and rejoice in you; / We will extol your love more than wine. / Rightly do they love you.
 

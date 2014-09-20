@@ -4,7 +4,7 @@ title: Confess
 categories: dealing
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Num. 5:7 Then **they shall confess their sin which they have committed** , and he shall make restitution according to its principal for his wrong and add to it one-fifth of it and give it to the one whom he has wronged.
 

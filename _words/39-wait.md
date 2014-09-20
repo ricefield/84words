@@ -4,7 +4,7 @@ title: Wait
 categories: beholding
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 27:14 **Wait for Jehovah; / Be strong, and let your heart be encouraged. / Yes, wait for Jehovah.**
 

@@ -4,7 +4,7 @@ title: Knock
 categories: approaching
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Luke 11:9 And I say to you, Ask and it shall be given to you; seek and you shall find; **knock and it shall be opened to you** .
 

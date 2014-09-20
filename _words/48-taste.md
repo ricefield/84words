@@ -4,7 +4,7 @@ title: Taste
 categories: assimilating
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 34:8 **Taste and see that Jehovah is good;** / Blessed is the man who takes refuge in Him.
 

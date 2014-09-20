@@ -6,7 +6,7 @@ categories: assimilating
 
 sigh
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 38:8 I am benumbed and crushed utterly; / **I cry out due to the groaning of my heart. 9 O Lord, all my desire is before You, / And my groaning is not hidden from You** .
 

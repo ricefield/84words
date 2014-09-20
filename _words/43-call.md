@@ -6,7 +6,7 @@ categories: assimilating
 
 breathe, inhale, invoke
 
-**Scriptures** :
+## Scriptures :
 
 Gen. 4:26 And to Seth also a son was born, and he called his name Enosh. **At that time men began to call upon the name of Jehovah.**
 

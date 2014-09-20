@@ -5,7 +5,7 @@ subheading: "Enter within the veil"
 categories: approaching
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 100:4 **Enter His gates with thanksgiving** , / His courts with praise; / Give thanks to Him; bless His name.
 

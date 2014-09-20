@@ -5,7 +5,7 @@ subheading: "I may know Him"
 categories: assimilating
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Jer. 31:34 And they will no longer teach, each man his neighbor and each man his brother, saying, Know Jehovah; **for all of them will know Me, from the little one among them even to the great one among them** , declares Jehovah, for I will forgive their iniquity, and their sin I will remember no more.
 

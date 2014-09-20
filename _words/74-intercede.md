@@ -4,7 +4,7 @@ title: Intercede
 categories: worshipping
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Gen. 18:24 Suppose there are fifty righteous within the city; will You indeed destroy and not spare the place for the sake of the fifty righteous who are in it?: 25 Far be it from You to do such a thing, to put to death the righteous with the wicked, so that the righteous should be as the wicked. Far be it from You! Shall the Judge of all the earth not do justly? …33 And Jehovah went away as soon as He had finished speaking with Abraham, and Abraham returned to his place.
 

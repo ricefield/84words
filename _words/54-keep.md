@@ -6,7 +6,7 @@ categories: assimilating
 
 guard, hold fast, store up
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 119:11 **In my heart I have treasured up Your word** / That I might not sin against You.
 

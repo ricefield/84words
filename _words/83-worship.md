@@ -6,7 +6,7 @@ categories: worshipping
 
 extol
 
-**Scriptures** :
+## Scriptures :
 
 Exo. 34:14 (For **you shall not worship any other god; for Jehovah, whose name is Jealous, is a jealous God** ),
 

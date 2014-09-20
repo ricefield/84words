@@ -4,7 +4,7 @@ title: Come
 categories: approaching
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Exo. 34:2 And be ready by the morning, and **come up in the morning**** to Mount Sinai, and present yourself there to Me **, on the top of the mountain. 3 And** no one shall come up with you**, nor let anyone be seen anywhere on the mountain, nor let the flocks or herds graze in front of that mountain.
 

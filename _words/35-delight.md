@@ -6,7 +6,7 @@ categories: beholding
 
 take great pleasure or enjoyment
 
-**Scriptures** :
+## Scriptures :
 
 Job 27:10 Does he **take delight in the Almighty** ? / Will he call upon God at all times?
 

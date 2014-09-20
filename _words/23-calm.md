@@ -6,7 +6,7 @@ categories: approaching
 
 still, tranquil
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 37:7 **Be still before Jehovah, and wait for Him** ; / Do not be incensed because of him who enjoys prosperity on his way, / Because of the man who performs his evil schemes.
 

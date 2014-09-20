@@ -4,7 +4,7 @@ title: Apply
 categories: dealing
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Rom. 3:25 Whom God set forth as a propitiation place **through faith in His blood** , for the demonstrating of His righteousness, in that in His forbearance God passed over the sins that had previously occurred,
 

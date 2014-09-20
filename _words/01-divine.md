@@ -4,7 +4,7 @@ title: Divine
 categories: first
 ---
 
-###Scriptures:
+## Scriptures:
 
 Gen. 2:21 And Jehovah God caused a deep sleep to fall upon the man, and he slept; and He took one of his ribs and closed up the flesh in its place. 22 And **Jehovah God built the rib, which He had taken from the man, into a woman and brought her to the man.**
 

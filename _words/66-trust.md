@@ -6,7 +6,7 @@ categories: dealing
 
 **Dictionary definition** : reliance on [the](http://dictionary.reference.com/browse/the)integrity, strength, ability, surety, of a person or thing; confidence.
 
-**Scriptures** :
+## Scriptures :
 
 Prov. 3:5 **Trust in Jehovah with all your heart,** / And do not rely on your own understanding;
 

@@ -6,7 +6,7 @@ categories: beholding
 
 hold, embrace, cleave
 
-**Scriptures** :
+## Scriptures :
 
 Deut. 13:4 You shall follow Jehovah your God; and you shall fear Him, keep His commandments, listen to His voice, serve Him, and **hold fast to Him** .
 

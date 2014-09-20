@@ -6,7 +6,7 @@ categories: assimilating
 
 chew, ruminate
 
-**Scriptures** :
+## Scriptures :
 
 Lev. 11:2 Speak to the children of Israel, saying, These are the animals which you may eat among all the beasts that are on the earth. 3 Whatever has a divided hoof, that is, has its hoof split in two, and **chews the cud among the beasts, that you may eat.**
 

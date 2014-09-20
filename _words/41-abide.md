@@ -7,7 +7,7 @@ categories: beholding
 
 remain, stay
 
-**Scriptures** :
+## Scriptures :
 
 John 4:24 God is Spirit, and **those who worship Him must worship in spirit** and truthfulness.
 

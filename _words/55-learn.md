@@ -4,7 +4,7 @@ title: Learn
 categories: assimilating
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Deut. 4:10 Especially do not forget the day when you stood before Jehovah your God at Horeb, when Jehovah said to me, **Gather the people to Me, and I will let them hear My words, so that they may learn to fear Me all the days that they live upon the earth** and may teach their children as much.
 

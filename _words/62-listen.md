@@ -6,7 +6,7 @@ categories: dealing
 
 hear
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 143:8 **Cause me to hear Your lovingkindness in the morning** , / For in You I trust. / Make known to me the way on which I should walk, / For to You I lift up my soul.
 

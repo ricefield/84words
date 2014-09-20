@@ -6,7 +6,7 @@ categories: worshipping
 
 implore, beseech
 
-**Scriptures** :
+## Scriptures :
 
 Gen. 25:21 And **Isaac entreated Jehovah for his wife because she was barren. And Jehovah was entreated of him** , and Rebekah his wife conceived.
 

@@ -7,7 +7,7 @@ categories: beholding
 
 united, attached, grafted
 
-**Scriptures** :
+## Scriptures :
 
 Deut. 4:4 **But you who joined yourselves to Jehovah your God are alive, all of you, today** .
 

@@ -6,7 +6,7 @@ categories: dealing
 
 consecrate, vow, devote, surrender
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 50:14 **Offer to God a sacrifice of thanksgiving** , / And repay your vows to the Most High.
 

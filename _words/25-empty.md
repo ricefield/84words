@@ -6,7 +6,7 @@ categories: approaching
 
 poor, unloaded
 
-**Scriptures** :
+## Scriptures :
 
 2 Kings 4:2 And Elisha said to her, What shall I do for you? Tell me, what do you have in your house? And she said, Your servant has nothing at all in the house, except a jar of oil. 3 And he said, Go and borrow vessels outside, from all your neighbors, empty vessels, and not just a few. 4 Then go in and shut the door behind you and your sons, and pour out into all those vessels; and each one you fill set aside. 5 So she went away from him and shut the door behind herself and her sons; and they brought the vessels to her, and she poured out into them. 6 And when she had filled the vessels, she said to her son, Bring me another vessel. But he said to her, There is no other vessel. And the oil stopped.
 

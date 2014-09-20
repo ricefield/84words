@@ -4,7 +4,7 @@ title: Seek
 categories: approaching
 ---
 
-**Scriptures** :
+## Scriptures :
 
 1 Chron. 16:11 **Seek Jehovah and His strength; / Seek His face continually.**
 

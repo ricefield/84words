@@ -4,7 +4,7 @@ title: Fear
 categories: dealing
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Deut. 10:12 And now, O Israel, **what does Jehovah your God ask of you except that you fear Jehovah your God so that you would walk in all His ways and love Him and serve Jehovah** your God with all your heart and with all your soul.
 

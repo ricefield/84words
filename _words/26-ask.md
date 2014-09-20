@@ -4,7 +4,7 @@ title: Ask
 categories: approaching
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Zech 10:1 - **Ask rain of Jehovah / At the time of spring rain** , / Of Jehovah who makes the lightning, / And He will give them showers of rain, / To everyone herbage in the field.
 

@@ -4,7 +4,7 @@ title: Deep
 categories: first
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 42:7 **Deep calls unto deep** / At the sound of Your water spouts; / All Your waves and Your billows / Pass over me.
 

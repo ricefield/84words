@@ -6,7 +6,7 @@ categories: first
 
 continual
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 16:8 **I have set Jehovah before me continually;** / Because He is at my right hand, I shall not be shaken.
 

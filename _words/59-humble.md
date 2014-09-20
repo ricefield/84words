@@ -6,7 +6,7 @@ categories: dealing
 
 lowly
 
-**Scriptures** :
+## Scriptures :
 
 2 Chron. 7:14 **And My people, who are called by My name, humble themselves and pray and seek My face and turn from their evil ways; then I will hear from heaven and forgive their sin and heal their land** .
 

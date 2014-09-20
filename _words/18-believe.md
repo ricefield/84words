@@ -4,7 +4,7 @@ title: Believe
 categories: approaching
 ---
 
-**Scriptures** :
+## Scriptures :
 
 John 14:1 Do not let your heart be troubled; **believe into God** , **believe also into Me** .
 

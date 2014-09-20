@@ -4,7 +4,7 @@ title: Sing
 categories: worshipping
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 96:1 **Sing to Jehovah a new song; / Sing to Jehovah, all the earth** .
 

@@ -5,7 +5,7 @@ subheading: "Consider Him"
 categories: assimilating
 ---
 
-**Scriptures** :
+## Scriptures :
 
 **Lev. 11:3 Whatever** has a divided hoof, that is, has its hoof split in two, and **chews the cud among the beasts, that you may eat.**
 

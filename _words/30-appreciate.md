@@ -6,7 +6,7 @@ categories: beholding
 
 treasure, value, precious
 
-**Scriptures** :
+## Scriptures :
 
 S.S 1:13 **My beloved is to me a bundle of myrrh** / That lies at night between my breasts. 14 **My beloved is to me a cluster of henna flowers** / In the vineyards of En-gedi. 16a - **Oh, you are beautiful, my beloved; indeed, pleasant** !
 

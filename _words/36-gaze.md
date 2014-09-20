@@ -10,7 +10,7 @@ behold, look intently
 
 To look at, to behold, expressing the calm, intent, continuous contemplation of an object which remains before the spectator.
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 27:4 One thing I have asked from Jehovah; / That do I seek: / To dwell in the house of Jehovah / All the days of my life, / **To behold the beauty of Jehovah,** / And to inquire in His temple.
 

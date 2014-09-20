@@ -6,7 +6,7 @@ categories: worshipping
 
 earnest strong desire, long, feel affection
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 84:2 **My soul longs, indeed even faints, / For the courts of Jehovah** ; / My heart and my flesh cry out / To the living God.
 

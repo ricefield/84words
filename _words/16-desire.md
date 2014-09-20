@@ -6,7 +6,7 @@ categories: approaching
 
 long, hunger, thirst, pant
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 42:1 As the hart pants / After the streams of water, / So **my soul pants / For You, O God** . 2 **My soul thirsts for God** , / For the living God. / When will I come and appear / Before God?
 

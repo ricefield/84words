@@ -6,7 +6,7 @@ categories: worshipping
 
 glory, celebrate, adore, appreciate
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 34:1 I will bless Jehovah at all times; / **His praise will continually be in my mouth** .
 

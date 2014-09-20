@@ -4,7 +4,7 @@ title: Treasure
 categories: assimilating
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 119:11 **In my heart I have treasured up Your word** / That I might not sin against You. 14 I have rejoiced in the way of Your testimonies / As much as in all riches. 72 **The law of Your mouth is better to me / Than thousands of pieces of gold and silver** .
 

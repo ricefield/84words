@@ -6,7 +6,7 @@ categories: beholding
 
 contact, grasp, handle
 
-**Scriptures** :
+## Scriptures :
 
 Matt. 9:21 For she said within herself, **If only I touch His garment, I will be healed** .
 

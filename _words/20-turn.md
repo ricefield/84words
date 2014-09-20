@@ -7,7 +7,7 @@ categories: approaching
 
 Return
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 51:13 I will teach transgressors Your ways, / And **sinners will turn back to You** .
 

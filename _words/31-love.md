@@ -4,7 +4,7 @@ title: Love
 categories: beholding
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Exo 20:6 Yet **showing lovingkindness to thousands of generations of those who love Me** and keep My commandments.
 

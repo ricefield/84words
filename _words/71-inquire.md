@@ -4,7 +4,7 @@ title: Inquire
 categories: worshipping
 ---
 
-**Scriptures** :
+## Scriptures :
 
 1 Sam. 30:8 **And David inquired of Jehovah, saying, Shall I pursue after this band?** Will I overtake them? And He said to him, Pursue, for you will certainly overtake them, and you will certainly deliver them.
 

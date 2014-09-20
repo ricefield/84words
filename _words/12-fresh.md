@@ -6,7 +6,7 @@ categories: first
 
 new
 
-**Scriptures** :
+## Scriptures :
 
 Lev. 2:14 And if you present a meal offering of firstfruits to Jehovah, you shall present for the meal offering of your firstfruits new grain roasted with fire, **crushed grain of the fresh ear** .
 

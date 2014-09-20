@@ -4,7 +4,7 @@ title: Bathe
 categories: beholding
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Exo. 30:18 **You shall also make a laver of bronze, with its base of bronze, for washing** . And you shall put it between the Tent of Meeting and the altar, and **you shall put water in it** .
 

@@ -6,7 +6,7 @@ categories: assimilating
 
 assimilate, absorb
 
-**Scriptures** :
+## Scriptures :
 
 Ezek. 2:8 But you, son of man, hear what I say to you; do not be rebellious like that rebellious house. **Open your mouth and eat what I give you.**
 

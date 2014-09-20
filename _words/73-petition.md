@@ -6,7 +6,7 @@ categories: worshipping
 
 supplicate, beseech
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 6:9 **Jehovah has heard my supplication** ; / Jehovah receives my prayer.
 

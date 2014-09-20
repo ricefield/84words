@@ -6,7 +6,7 @@ categories: assimilating
 
 Consider, ponder, mind
 
-**Scriptures** :
+## Scriptures :
 
 Gen. 24:63 **And Isaac went out to meditate in the field toward evening** . And he lifted up his eyes and looked, and behold, camels were coming.
 

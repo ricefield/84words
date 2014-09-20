@@ -6,7 +6,7 @@ categories: dealing
 
 commit
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 55:22 **Cast your burden upon Jehovah, / And He will sustain you** ; / He will never allow the righteous to be moved.
 

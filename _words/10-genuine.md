@@ -6,7 +6,7 @@ categories: first
 
 sincere, truthful
 
-**Scriptures** :
+## Scriptures :
 
 Josh. 24:14 Now therefore fear Jehovah, and **serve Him in sincerity and faithfulness** ; and put away the gods whom your fathers served across the River and in Egypt, and serve Jehovah.
 

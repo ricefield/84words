@@ -4,7 +4,7 @@ title: Thank
 categories: worshipping
 ---
 
-**Scriptures** :
+## Scriptures :
 
 1 Chron. 16:8 **Give thanks to Jehovah** ; call upon His name; / Make known His deeds among the peoples.
 

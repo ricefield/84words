@@ -4,7 +4,7 @@ title: Repent
 categories: dealing
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Job 42:5 I had heard of You by the hearing of the ear, / But now my eye has seen You; 6 **Therefore I abhor myself, and I repent** / In dust and ashes.
 

@@ -6,7 +6,7 @@ categories: worshipping
 
 be beside oneself
 
-**Scriptures** :
+## Scriptures :
 
 Psa. 9:14 That I may tell out all Your praises / And, in the gates of the daughter of Zion, **exult in Your salvation.**
 

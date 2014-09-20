@@ -6,7 +6,7 @@ categories: approaching
 
 decide
 
-**Scriptures** :
+## Scriptures :
 
 Deut. 30:19 I call heaven and earth to witness against you today: I have set before you life and death, blessing and curse; **therefore choose life that you and your seed may live** , 20 **In loving Jehovah your God by listening to His voice and holding fast to Him; for He is your life and the length of your days** , that you may dwell upon the land which Jehovah swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them.
 

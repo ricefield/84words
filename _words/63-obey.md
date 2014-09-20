@@ -4,7 +4,7 @@ title: Obey
 categories: dealing
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Exo. 19:5 Now therefore **if you will indeed obey My voice** and keep My covenant, then **you shall be My personal treasure** from among all peoples, for all the earth is Mine.
 

@@ -6,7 +6,7 @@ categories: assimilating
 
 desperation, audible, loud, tears
 
-**Scriptures** :
+## Scriptures :
 
 **Psa. 39:12**** Hear my prayer, O Jehovah; / And give ear to my cry; / Do not hold Your peace at my tears.** / For I am a stranger with You, / A sojourner, as all my fathers were.
 

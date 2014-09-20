@@ -4,7 +4,7 @@ title: Private
 categories: first
 ---
 
-**Scriptures** :
+## Scriptures :
 
 S. S. 1:4b The king has **brought me into his chambers** .
 

@@ -7,7 +7,7 @@ categories: worshipping
 
 Regard with utmost esteem, love intensely, pay divine honor
 
-**Scriptures** :
+## Scriptures :
 
 John 5:23 In order that **all may honor the Son even as they honor the Father** . He who does not honor the Son does not honor the Father who sent Him.
 

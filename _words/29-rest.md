@@ -6,7 +6,7 @@ categories: beholding
 
 Sabbath
 
-**Scriptures** :
+## Scriptures :
 
 Gen. 2:2 And on the seventh day God finished His work which He had done, and **He rested on the seventh day from all His work which He had done** .
 

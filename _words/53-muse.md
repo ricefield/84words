@@ -4,7 +4,7 @@ title: Muse
 categories: assimilating
 ---
 
-**Scriptures** :
+## Scriptures :
 
 Josh. 1:8 **This book of the law shall not depart from your mouth, but you shall muse upon it day and night** so that you may be certain to do according to all that is written in it. For then you will make your way prosperous and then you will have success.
 
