@@ -4,7 +4,7 @@ title: Need
 categories: approaching
 ---
 
-##Scriptures:
+##Scriptures
 
 And when Jesus heard this, He said to them, Those who are strong have no **need of a physician** , but those who are ill; I did not come to call the righteous, but sinners.
 ---_Mark 2:17_
@@ -21,12 +21,12 @@ And my **God will fill your every need** according to His riches, in glory, in C
 Because **you say, I am wealthy and have become rich and have need of nothing** , and do not know that you are wretched and miserable and poor and blind and naked.
 ---_Rev. 3:17_ 
 
-## Footnotes :
+## Footnotes
 
 The degraded recovered church boasts of her riches (which are mainly in the knowledge of doctrines). She does not realize that she is poor in life, blind in sight, and naked in conduct. Therefore **, she needs to buy gold to make herself rich, white garments to cover her nakedness, and eyesalve to cure her blindness,** as mentioned in the next verse.
 ---_Rev 3:17, note 1_ 
 
-## Ministry Excerpts :
+## Ministry Excerpts
 
 **Man has a spirit, so he has the need of the spirit. What the spirit needs is God. The spirit was created for man to contact God, so it needs God** . This is just like the stomach, which needs food because it was created for man to receive food. If there were no food, there would be no need to have a stomach; if there were no stomach, there would also be no need to have food. Likewise, if there were no God, there would be no need for the human spirit, and if there were no human spirit, man would also have no need for God. However, man has a spirit, and man's spirit came into existence for man to contact God; therefore, man needs God.
 
@@ -40,7 +40,7 @@ Brothers and sisters, please remember that there is a spirit in man, that there 
 
 **If we learn to assimilate God in our spirit, we will experience Him as everything, and He will be whatever we need.** As we assimilate Him this way, we will discover that God is our comfort when we need comfort. He is our power when we need power. He is the word when we need a word. He is light when we need light. He is our patience when we need patience. He is love when we need love. He is holiness when we need holiness. He is our way when we need a way. He is wisdom when we need wisdom. All parents need forbearance toward their children. Once we receive God, He becomes forbearance to us. All children need to honor and obey their parents. Once we receive God into us, there is honor and obedience. **Our God is everything to us according to our need. When we assimilate Him, He is whatever we need. This is wonderful!** (_How to Enjoy God and How to Practice the Enjoyment of God_, p. 110)
 
-## Hymns:
+## Hymns
 
 ### I Need You, Jesus, ss. 1-3
 <pre>
