@@ -18,7 +18,7 @@ title: 84 Precious Words
       <div>
       {% for word in site.words %}
         {% if word.categories contains "first" %}
-          <span class="word"><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+          <span class="word"><a href="{{ site.baseurl }}{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
         {% endif %}
       {% endfor %}
       </div>
@@ -29,7 +29,7 @@ title: 84 Precious Words
           <div>
           {% for word in site.words %}
             {% if word.categories contains "approaching" %}
-              <span class="word"><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+              <span class="word"><a href="{{ site.baseurl }}{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
             {% endif %}
           {% endfor %}
           </div>       
@@ -38,7 +38,7 @@ title: 84 Precious Words
           <div>
           {% for word in site.words %}
             {% if word.categories contains "beholding" %}
-              <span class="word"><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+              <span class="word"><a href="{{ site.baseurl }}{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
             {% endif %}
           {% endfor %}
           </div>
@@ -47,7 +47,7 @@ title: 84 Precious Words
           <div>
           {% for word in site.words %}
             {% if word.categories contains "assimilating" %}
-              <span class="word"><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+              <span class="word"><a href="{{ site.baseurl }}{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
             {% endif %}
           {% endfor %}
           </div>
@@ -56,7 +56,7 @@ title: 84 Precious Words
           <div>
           {% for word in site.words %}
             {% if word.categories contains "dealing" %}
-              <span class="word"><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+              <span class="word"><a href="{{ site.baseurl }}{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
             {% endif %}
           {% endfor %}
           </div>
@@ -65,7 +65,7 @@ title: 84 Precious Words
           <div>
           {% for word in site.words %}
             {% if word.categories contains "worshipping" %}
-              <span class="word"><a href="{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
+              <span class="word"><a href="{{ site.baseurl }}{{ word.url }}">{{ word.title }}</a>  &#8226;</span>
             {% endif %}
           {% endfor %}
           </div>
