@@ -1,6 +1,3 @@
-# visit https://github.com/mojombo/jekyll/wiki/Configuration for more settings
-auto: true                                # automatically update your jekyll
-server: true                              # runs a local server
 paginate: 10                              # pagination basted on number of posts
 title: 84 Precious Words
 email: churchinirvine@gmail.com
@@ -25,4 +22,6 @@ defaults:
     values:
       category-heading: Words that Describe Our Personal Fellowship with the Lord
 # Build settings
-markdown: kramdown
+markdown: redcarpet
+recarpet:
+  extensions: ["smart", "superscript"]

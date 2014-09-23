@@ -16,7 +16,7 @@ Rev. 22:17 And **the Spirit and the bride say, Come!** And let him who hears say
 
 ## Footnotes:
 
-Gen 2:21, note 1 In order to produce a complement for Himself, God first became a man (John 1:14), as typified by God's creation of Adam (Rom. 5:14). Here Adam's deep sleep for the producing of Eve as his wife typifies Christ's death on the cross for the producing of the church as His counterpart (Eph. 5:25-27). **Through Christ's death the divine life within Him was released, and**** through His resurrection His released divine life was imparted into His believers for the constituting of the church (see note 34 **1** in John 19). Through such a process God in Christ has been wrought into man with His life and nature so that man can be the same as God in life and nature in order to match Him as His counterpart.**
+Gen 2:21, note 1 In order to produce a complement for Himself, God first became a man (John 1:14), as typified by God's creation of Adam (Rom. 5:14). Here Adam's deep sleep for the producing of Eve as his wife typifies Christ's death on the cross for the producing of the church as His counterpart (Eph. 5:25-27). **Through Christ's death the divine life within Him was released, and through His resurrection His released divine life was imparted into His believers for the constituting of the church (see note 34^1 in John 19). Through such a process God in Christ has been wrought into man with His life and nature so that man can be the same as God in life and nature in order to match Him as His counterpart.**
 
 Eph 5:26, note 1 **Christ's purpose in giving Himself up for the church is to sanctify her, not only separating her to Himself from everything common but also saturating her with His element that she may be His counterpart** . **He accomplishes this by cleansing her by the washing of the water in the word.**
 
@@ -34,7 +34,7 @@ Rev 22:17, note 1, par. 2 **The entire revelation of the Bible shows us the love
 
 ## Hymns:
 
-_ **This Divine Romance. ss. 1, 3** _
+### This Divine Romance. ss. 1, 3
 
 (1) How could a country girl like me
 
@@ -138,7 +138,7 @@ And Your Person captured me,
 For I've been kissed by Thee.
 
     
-_ **Hymn 841, vv. 1-3, 6** _
+### Hymn 841, vv. 1-3, 6 
 
 (1) Thou art all my life, Lord,
 
@@ -207,5 +207,3 @@ Thy complete expression
 
 Glorifying Thee.
 
-    
-1- Divine
