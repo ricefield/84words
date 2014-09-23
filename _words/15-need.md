@@ -4,21 +4,27 @@ title: Need
 categories: approaching
 ---
 
-**Scripture Reading** :
+##Scriptures:
 
-Mark 2:17 And when Jesus heard this, He said to them, Those who are strong have no **need of a physician** , but those who are ill; I did not come to call the righteous, but sinners..
+And when Jesus heard this, He said to them, Those who are strong have no **need of a physician** , but those who are ill; I did not come to call the righteous, but sinners.
+---_Mark 2:17_
 
-Luke 15:7 I tell you that in the same way there will be more joy in heaven over one sinner repenting than over ninety-nine righteous persons who have no **need of repentance** .
+I tell you that in the same way there will be more joy in heaven over one sinner repenting than over ninety-nine righteous persons who have no **need of repentance** .
+---_Luke 15:7_ 
 
-Eph. 4:29 Let no corrupt word proceed out of your mouth, but only that which is good for building up, **according to the need** , that it may give grace to those who hear.
+Let no corrupt word proceed out of your mouth, but only that which is good for building up, **according to the need** , that it may give grace to those who hear.
+---_Eph. 4:29_ 
 
-Phil. 4:19 And my **God will fill your every need** according to His riches, in glory, in Christ Jesus.
+And my **God will fill your every need** according to His riches, in glory, in Christ Jesus.
+---_Phil. 4:19_ 
 
-Rev. 3:17 Because **you say, I am wealthy and have become rich and have need of nothing** , and do not know that you are wretched and miserable and poor and blind and naked.
+Because **you say, I am wealthy and have become rich and have need of nothing** , and do not know that you are wretched and miserable and poor and blind and naked.
+---_Rev. 3:17_ 
 
 ## Footnotes :
 
-Rev 3:17, note 1 The degraded recovered church boasts of her riches (which are mainly in the knowledge of doctrines). She does not realize that she is poor in life, blind in sight, and naked in conduct. Therefore **, she needs to buy gold to make herself rich, white garments to cover her nakedness, and eyesalve to cure her blindness,** as mentioned in the next verse.
+The degraded recovered church boasts of her riches (which are mainly in the knowledge of doctrines). She does not realize that she is poor in life, blind in sight, and naked in conduct. Therefore **, she needs to buy gold to make herself rich, white garments to cover her nakedness, and eyesalve to cure her blindness,** as mentioned in the next verse.
+---_Rev 3:17, note 1_ 
 
 ## Ministry Excerpts :
 
@@ -34,88 +40,69 @@ Brothers and sisters, please remember that there is a spirit in man, that there 
 
 **If we learn to assimilate God in our spirit, we will experience Him as everything, and He will be whatever we need.** As we assimilate Him this way, we will discover that God is our comfort when we need comfort. He is our power when we need power. He is the word when we need a word. He is light when we need light. He is our patience when we need patience. He is love when we need love. He is holiness when we need holiness. He is our way when we need a way. He is wisdom when we need wisdom. All parents need forbearance toward their children. Once we receive God, He becomes forbearance to us. All children need to honor and obey their parents. Once we receive God into us, there is honor and obedience. **Our God is everything to us according to our need. When we assimilate Him, He is whatever we need. This is wonderful!** (_How to Enjoy God and How to Practice the Enjoyment of God_, p. 110)
 
-## Hymns :
+## Hymns:
 
-_ **I Need You, Jesus, ss. 1-3** _
+## I Need You, Jesus, ss. 1-3
+<pre>
+1. I need You, Jesus,  
+    More and more each day.  
+    I can't live without You,  
+    Most wonderful One!
 
-1I need You, Jesus,  
-More and more each day.  
-I can't live without You,  
-Most wonderful One!
+        I need You, Lord,  
+        More and more every day.  
+        I can't live without You,  
+        Oh, most wonderful One!
 
-I need You, Lord,  
-More and more every day.  
-I can't live without You,  
-Oh, most wonderful One!
+2. My lovely Bridegroom,  
+    Oh, most pleasant One,  
+    Take me in Your chambers,  
+    Sustain me with love!
 
-2My lovely Bridegroom,  
-Oh, most pleasant One,  
-Take me in Your chambers,  
-Sustain me with love!
+        I need You, Lord,  
+        More and more every day.  
+        I can't live without You,  
+        Oh, most wonderful One!
 
-I need You, Lord,  
-More and more every day.  
-I can't live without You,  
-Oh, most wonderful One!
+3. Jesus, just kiss me,  
+    Kisses of Your mouth.  
+    Grace upon Thy lips is  
+    So sweet to my taste.
 
-3Jesus, just kiss me,  
-Kisses of Your mouth.  
-Grace upon Thy lips is  
-So sweet to my taste.
+        I need You, Lord,  
+        More and more every day.  
+        I can't live without You;  
+        I need Your sweet taste.
+</pre>
 
-I need You, Lord,  
-More and more every day.  
-I can't live without You;  
-I need Your sweet taste.
+## Hymn 371
+<pre>
+1. I need Thee every hour,
+    Most gracious Lord;
+    No tender voice like Thine
+    Can peace afford.
+        I need Thee, oh, I need Thee;
+        Every hour I need Thee;
+        Oh, bless me now, my Savior!
+        I come to Thee.
 
-_ **Hymn 371** _
+2. I need Thee every hour,
+    Stay Thou near by;
+    Temptations lose their power
+    When Thou art nigh.
 
-1I need Thee every hour,
+3. I need Thee every hour,
+    In joy or pain;
+    Come quickly and abide,
+    or life is vain.
 
-Most gracious Lord;
+4. I need Thee every hour,
+    Teach me Thy will;
+    And Thy rich promises
+    In me fulfill.
 
-No tender voice like Thine
-
-Can peace afford.
-
-I need Thee, oh, I need Thee;
-
-Every hour I need Thee;
-
-Oh, bless me now, my Savior!
-
-I come to Thee.
-
-2I need Thee every hour,
-
-Stay Thou near by;
-
-Temptations lose their power
-
-When Thou art nigh.
-
-3I need Thee every hour,
-
-In joy or pain;
-
-Come quickly and abide,
-
-or life is vain.
-
-4I need Thee every hour,
-
-Teach me Thy will;
-
-And Thy rich promises
-
-In me fulfill.
-
-5I need Thee every hour,
-
-Most Holy One;
-
-Oh, make me Thine indeed,
-
-Thou blessed Son.
-
-15 - Need
+5. I need Thee every hour,
+    Most Holy One;
+    Oh, make me Thine indeed,
+    Thou blessed Son.
+</pre>
