@@ -43,102 +43,101 @@ The Greek word denotes an instant word. **The indwelling Christ as the life-givi
 
 ## Hymns:
 
-### This Divine Romance. ss. 1, 3
+### This Divine Romance, ss. 1, 3-4
+<pre>
+1. How could a country girl like me
+    Become Your match — Your bride to be?
+    You're holy and You are divine
+    But I'm fallen and human.
+    Without You, Lord, I have no chance
+    To be like You in this romance.
+    But You chose me ere the world began
+    Nothing could change Your plan.
 
-1) How could a country girl like me
-Become Your match — Your bride to be?
-You're holy and You are divine
-But I'm fallen and human.
-Without You, Lord, I have no chance
-To be like You in this romance.
-But You chose me ere the world began
-Nothing could change Your plan.
-
-  This divine romance
-  Is My heart's deep plan.
-  I became a lowly man
-  To court My country girl.
-  Nothing could deter,
-  Nothing can alter
-  My eternal love for her;
-  I'll gain My country girl.
+        This divine romance
+        Is My heart's deep plan.
+        I became a lowly man
+        To court My country girl.
+        Nothing could deter,
+        Nothing can alter
+        My eternal love for her;
+        I'll gain My country girl.
  
-3) As King of kings You became a man,
-You died for me—I've been redeemed,
-In resurrection made us queen
-To marry You, my King.
-From death You 'rose and entered me,
-I now possess Your divinity;
-In life and nature we're the same:
-Both human and divine.
+3. As King of kings You became a man,
+    You died for me—I've been redeemed,
+    In resurrection made us queen
+    To marry You, my King.
+    From death You 'rose and entered me,
+    I now possess Your divinity;
+    In life and nature we're the same:
+    Both human and divine.
   
-  In Your love I'm drawn,
-  To You I belong;
-  I am not my own, Lord,
-  I'm Yours alone.
-  By Your love I'm drawn,
-  In Your name I'm charmed,
-  And Your Person captured me,
-  For I've been kissed by Thee.
+        In Your love I'm drawn,
+        To You I belong;
+        I am not my own, Lord,
+        I'm Yours alone.
+        By Your love I'm drawn,
+        In Your name I'm charmed,
+        And Your Person captured me,
+        For I've been kissed by Thee.
   
-  
-4) Lord, in this close sweet fellowship,
-Lord, be with me so intimate,
-So personal and affectionate;
-A sweet relationship.
-Lord, daily change my inward being
-Lord, all my heart possessing
-In all my being—transforming
-To be Your bride and queen.
+4. Lord, in this close sweet fellowship,
+    Lord, be with me so intimate,
+    So personal and affectionate;
+    A sweet relationship.
+    Lord, daily change my inward being
+    Lord, all my heart possessing
+    In all my being—transforming
+    To be Your bride and queen.
 
-  In Your love I'm drawn,
-  To You I belong;
-  I am not my own, Lord,
-  I'm Yours alone.
-  By Your love I'm drawn,
-  In Your name I'm charmed,
-  And Your Person captured me,
-  For I've been kissed by Thee.
-
+        In Your love I'm drawn,
+        To You I belong;
+        I am not my own, Lord,
+        I'm Yours alone.
+        By Your love I'm drawn,
+        In Your name I'm charmed,
+        And Your Person captured me,
+        For I've been kissed by Thee.
+</pre>
     
 ### Hymn 841, vv. 1-3, 6 
 
-1) Thou art all my life, Lord,
-In me Thou dost live;
-With Thee all God's fulness
-Thou to me dost give.
-By Thy holy nature
-I am sanctified,
-By Thy resurrection,
-Vict'ry is supplied.
+<pre>
+1. Thou art all my life, Lord,
+    In me Thou dost live;
+    With Thee all God's fulness
+    Thou to me dost give.
+    By Thy holy nature
+    I am sanctified,
+    By Thy resurrection,
+    Vict'ry is supplied.
+    
+2. Now Thy flowing life, Lord,
+    Doth enlighten me,
+    Bringing in the spirit
+    Fellowship with Thee;
+    All my need supplying,
+    Making Thy demand,
+    Leading me to cleansing
+    And in Thee to stand.
+
+3. Thy anointing Spirit
+    Me shall permeate,
+    All my soul and spirit
+    Thou wouldst saturate;
+    Every part transforming
+    Till conformed to Thee,
+    Till Thy life shall bring me
+    To maturity.
 
     
-2) Now Thy flowing life, Lord,
-Doth enlighten me,
-Bringing in the spirit
-Fellowship with Thee;
-All my need supplying,
-Making Thy demand,
-Leading me to cleansing
-And in Thee to stand.
-
-    
-3) Thy anointing Spirit
-Me shall permeate,
-All my soul and spirit
-Thou wouldst saturate;
-Every part transforming
-Till conformed to Thee,
-Till Thy life shall bring me
-To maturity.
-
-    
-6) I would cease completely
-From my efforts vain,
-Let Thy life transform me,
-Full release to gain;
-Build me up with others
-Till in us Thou see
-Thy complete expression
-Glorifying Thee.
+6. I would cease completely
+    From my efforts vain,
+    Let Thy life transform me,
+    Full release to gain;
+    Build me up with others
+    Till in us Thou see
+    Thy complete expression
+    Glorifying Thee.
+</pre>
 
