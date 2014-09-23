@@ -4,7 +4,7 @@ title: Learn
 categories: assimilating
 ---
 
-## Scriptures :
+##Scriptures
 
 Deut. 4:10 Especially do not forget the day when you stood before Jehovah your God at Horeb, when Jehovah said to me, **Gather the people to Me, and I will let them hear My words, so that they may learn to fear Me all the days that they live upon the earth** and may teach their children as much.
 
@@ -14,13 +14,13 @@ Matt. 11:29 **Take My yoke upon you and learn from Me** , for I am meek and lowl
 
 Eph. 4:20 **But you did not so learn Christ, 21 If indeed you have heard Him and have been taught in Him as the reality is in Jesus.**
 
-## Footnotes :
+## Footnotes
 
 Eph 4:201 (learn) Christ is not only life to us but also an example (John 13:15; 1 Pet. 2:21). In His life on earth He set up a pattern, as revealed in the Gospels. Then He was crucified and resurrected to become the life-giving Spirit that He might enter into us to be our life. **We learn from Him (Matt. 11:29) according to His example, not by our natural life but by Him as our life in resurrection. To learn Christ is simply to be molded into the pattern of Christ, that is, to be conformed to the image of Christ** (Rom. 8:29).
 
 Eph 4:211 The reality is in Jesus refers to the actual condition of the life of Jesus as recorded in the four Gospels. In the godless walk of the nations, the fallen people, there is vanity. But in the godly life of Jesus there is truth, reality. Jesus lived a life in which He did everything in God, with God, and for God. God was in His living, and He was one with God. This is what is meant by the reality is in Jesus. **We, the believers, who are regenerated with Christ as our life and are taught in Him, learn from Him as the reality is in Jesus** .
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 Ephesians 4:20 says, "But you did not so learn Christ." We must pay attention to the phrase _learn Christ_ and understand it in the proper way. To learn Christ does not mean that because Christ loved people, we also should love people. When I was a child, I was taught that because Jesus loved poor people, we must love poor people as well. I was wrongly taught that such imitation is what it means to learn Christ. **To learn Christ does not mean that we imitate Him; it means that we, within whom Christ dwells, have Christ as our life in everything that we do. It means that when we think about things, we take Christ as our life subjectively and live Him out. Learning Christ is not objective—it is not simply taking the Christ who is outside of us and following His example. Rather, learning Christ is very subjective. It has everything to do with Christ being in us, dwelling in us, and being life to us. For us to learn Christ means that His mind becomes our mind, His love becomes our love, and His heart becomes our heart** . We must take His mind as our mind and therefore give up our own mind. This is the right way to learn Christ. In the next verse, Paul says "If indeed you have heard Him and have been taught in Him as the reality is in Jesus" (v. 21). All the reality that is in Christ must be enjoyed by us and must become our portion. For example, love and light are realities. These realities are in Christ. Since we have been regenerated, Christ is in us. Therefore, whatever He has within Himself—in this example, love and light—has become our portion (_The Believer's Experience of Transformation,_ Chapter 4).
 
@@ -30,7 +30,7 @@ Ephesians 4:20 says, "But you did not so learn Christ." We must pay attention to
 
 Christ is not only life to us but also an example (John 13:15; 1 Pet. 2:21). In His life on earth He set up a pattern, as revealed in the Gospels. Then He was crucified and resurrected to become the life-giving Spirit that He might enter into us to be our life. We learn from Him (Matt. 11:29) according to His example, not by our natural life but by Him as our life in resurrection. **To learn Christ is simply to be molded into the pattern of Christ, that is, to be conformed to the image of Christ (Rom. 8:29)** . The expression _the reality is in Jesus_ refers to the actual condition of the life of Jesus as recorded in the four Gospels. In the godless walk of the nations, the fallen people, there is vanity, but in the godly life of Jesus there is the reality. Jesus lived a life in which He did everything in God, with God, and for God. God was in His living, and He was one with God. This is what is meant by _the reality is in Jesus._ **We, the believers, who are regenerated with Christ as our life and are taught in Him, learn from Him as the reality is in Jesus** (_Conclusion of the New Testament, The (Msgs. 323-345),_ Chapter 19).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 87** _
 

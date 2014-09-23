@@ -4,7 +4,7 @@ title: Fear
 categories: dealing
 ---
 
-## Scriptures :
+##Scriptures
 
 Deut. 10:12 And now, O Israel, **what does Jehovah your God ask of you except that you fear Jehovah your God so that you would walk in all His ways and love Him and serve Jehovah** your God with all your heart and with all your soul.
 
@@ -20,11 +20,11 @@ Phil. 2:12 So then, my beloved, even as you have always obeyed, not as in my pre
 
 1 Pet. 1:17 And if you call as Father the One who without respect of persons judges according to each one's work, **pass the time of your sojourning in fear** .
 
-## Footnotes :
+## Footnotes
 
 1 Pet. 1:174 **A holy fear, as in Phil. 2:12; i.e., a healthy, serious caution that leads us to behave holily.** Such fear is mentioned a number of times in this book (see reference 17e) because this book's teaching concerns the government of God.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 The Spirit is also the Spirit of knowledge and the fear of Jehovah. **The fear of Jehovah goes together with the proper knowledge** . Before we were saved, we were afraid of nothing because we were ignorant. From the time we were saved by the Lord, we have been receiving a spiritual education and acquiring spiritual knowledge. Today many of us can testify that we would not dare go to a movie or to other worldly and sinful places. **There are many places to which we dare not go, because we have the fear of Jehovah. Someone may ask us to do something, but we dare not do it, because we have the fear of Jehovah** . We dare not buy certain clothes which have the modern appearance of this age, because we fear Jehovah. **We fear Jehovah because of the spiritual knowledge** (_Life-Study of Isaiah,_ Chapter 38).
 
@@ -38,7 +38,7 @@ Our old manner of life, a life in lusts (1 Pet. 1:14), had no meaning and no goa
 
 **I would encourage you to spend an hour alone with the Lord to consider the precious blood of Christ shed for you on the cross. This will give you the desire to have a holy manner of life in fear.** You will want to become holy in all your manner of life and to pass the remaining time of your sojourn in fear. If we would live in this way, we need to realize that we have been redeemed, bought, purchased, with the high price of Christ's precious blood. **This realization will cause us to have a living in a holy manner of life, for we shall realize that Christ's precious blood has redeemed us from the vain manner of life. No longer will we want to live in a way that is vain** (_Life-Study of 1 Peter,_ Chapter 12).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 754** _
 

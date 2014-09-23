@@ -6,7 +6,7 @@ categories: worshipping
 
 implore, beseech
 
-## Scriptures :
+##Scriptures
 
 Gen. 25:21 And **Isaac entreated Jehovah for his wife because she was barren. And Jehovah was entreated of him** , and Rebekah his wife conceived.
 
@@ -24,13 +24,13 @@ Acts 8:22 Repent therefore from this wickedness of yours and **beseech the Lord*
 
 2 Cor. 12:8 Concerning this **I entreated the Lord three times** that it might depart from me.
 
-## Footnotes :
+## Footnotes
 
 Gen. 25:211Isaac's need to have a son corresponded with God's need to have a seed out of Isaac for the fulfillment of His eternal purpose. **Because of this, God answered Isaac's entreaty** . Eventually, Isaac's son Jacob not only met Isaac's need but also fulfilled God's purpose, for out of Jacob came Christ (Matt. 1:1-2), who brings in the church, the kingdom, and the New Jerusalem.
 
 Exo. 32:111 Lit., **made Jehovah's face sweet, or pleasant. Moses' entreaty on behalf of the children of Israel, which took care of God's name and stood on God's faithfulness to keep His covenant (vv. 11-13), changed the expression on God's face from one of anger to one of pleasantness** . Thus, God repented and did not consume His people (v. 14).
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
   1. Psalm 119:58 says, "I entreated thy face with my whole heart" (Heb.). The King James Version uses the word favor instead of face. To seek a person's face is actually to seek his favor. If we entreat the Lord's face, His countenance, we shall receive bounty. Often little children will earnestly seek the face of their mother. To them nothing is more dear than beholding their mother's face. We also should seek the Lord in such an intimate way, entreating His countenance. The Lord's countenance brings His favor to the seeking one. For whatever the psalmist needed, he would entreat God's countenance (Life-Study of Exodus, Chapter 56).
   2. As we enjoy God Himself, we also enjoy His countenance. Immediately after speaking of God as his portion, the psalmist says, "I entreated thy countenance with my whole heart" (v. 58, Heb.). It is also true in our spiritual experience that when we enjoy God, we desire to see His face. According to verse 58, the psalmist entreated the Lord's countenance. This expression is rather unusual. Have you ever heard of someone praying by entreating the Lord's countenance? If you consider your experience, you will realize that out of love for the Lord, there have been times when you longed to see His face. You wanted to be under the shining of His countenance. His countenance was all-important to you, and you wanted nothing else but to remain under His countenance and enjoy it. In verse 135 the psalmist prayed, "Make thy face to shine upon thy servant." This indicates that the psalmist also enjoyed the shining of God's face (Life-Study of Exodus, Chapter 60).
@@ -40,7 +40,7 @@ Exo. 32:111 Lit., **made Jehovah's face sweet, or pleasant. Moses' entreaty on b
   3. We always beseech the Lord to work, and even tell Him that if He does not work, we have no way to go on. But the problem is not that He refuses to work, but that we refuse to allow Him to work. The work of the Lord is to arouse our inner sense. If we let the Lord work, spontaneously we will have dealings according to this inner feeling. Each step of the Lord's work is to expose our difficulties and demand that we deal with them. The minute the Lord works in us, immediately we must have dealings. To let the Lord work is to let Him deal with us. If we deal thoroughly with each feeling, the Lord will be able to work in us through and through. Our whole being will become living. We will become as dynamite in the Lord's work, exploding the Lord's work out from within us. (The Experience of Life, Chapter 6).
   4. Our attitude towards prophesying should be one of desiring. We should even be so hungry that we would beseech the Lord in earnestness, saying, "Lord, be merciful to us. First Corinthians 14 has not been fulfilled among your saints. Lord, if it is not fulfilled, the church cannot be built up, and You cannot come back. For the building up of the church and for Your coming back, be merciful to us, and grant us the prophesying." If you seek earnestly this way, the Lord will hear your prayer (The Organic Practice of the New Way, Chapter 6).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 784** _
 

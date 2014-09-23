@@ -6,7 +6,7 @@ categories: approaching
 
 poor, unloaded
 
-## Scriptures :
+##Scriptures
 
 2 Kings 4:2 And Elisha said to her, What shall I do for you? Tell me, what do you have in your house? And she said, Your servant has nothing at all in the house, except a jar of oil. 3 And he said, Go and borrow vessels outside, from all your neighbors, empty vessels, and not just a few. 4 Then go in and shut the door behind you and your sons, and pour out into all those vessels; and each one you fill set aside. 5 So she went away from him and shut the door behind herself and her sons; and they brought the vessels to her, and she poured out into them. 6 And when she had filled the vessels, she said to her son, Bring me another vessel. But he said to her, There is no other vessel. And the oil stopped.
 
@@ -16,11 +16,11 @@ Matt. 5:3 **Blessed are the poor in spirit** , for theirs is the kingdom of the 
 
 Luke 1:53 - **The hungry He has filled with good things** , and the rich He has sent away empty.
 
-## Footnotes :
+## Footnotes
 
 Matt. 5:3, note 2 **To be poor in spirit is not only to be humble but also to be emptied in our spirit, in the depth of our being, not holding on to the old things of the old dispensation but unloaded to receive the new things, the things of the kingdom of the heavens.**
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **God will use only you, not what you have or can do. Therefore, you must empty yourself. To empty yourself means to have an absolute openness to God. The real openness to God means emptiness** . You may say you are open, but you are filled. A jar may be open, but it may be filled with sand. You may say that you are open to the Lord. **You may be open, but you are not empty** . There has never been an unloading. What part of you needs to be unloaded? Your capability, your knowledge, your wisdom, your education. It is only when you are empty that God can come in to fill you… **The problem is that we are not emptied and therefore cannot be filled with the Triune God as the filling Spirit today** . The problem is our education, our knowledge, our experience… you have had many experiences. **But even real experiences of the church life have to be emptied out** … **God cannot build His dwelling place by Himself; He can do it only through willing and empty vessels** . Whether the church is living and fresh and enriched depends on this one thing: that we are being filled continuously with the Triune God. For this, dear brothers, we need firstly the willingness and secondly the emptiness (_Practical Talks to the Elders,_ Chapter 7).
 
@@ -36,7 +36,7 @@ We all need to be emptied of anything other than Christ that occupies us. **Our 
 
 **What is the main purpose of unloading all these things? It is to perfect you in one matter: that Christ will really live in you and that the church will be your practical living of Christ.** So far we haven't reached the goal. We have a long way to go. We have too many things to unload. I don't mean that only the negative ones, the dissenting ones, the worldly ones, the fleshly ones, or the sinful ones need to be unloaded; I mean also the positive ones. I mean _you_ need to be unloaded (_Perfecting Training,_ Chapter 19).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 255** _
 

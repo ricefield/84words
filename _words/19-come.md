@@ -4,7 +4,7 @@ title: Come
 categories: approaching
 ---
 
-## Scriptures :
+##Scriptures
 
 Exo. 34:2 And be ready by the morning, and **come up in the morning**** to Mount Sinai, and present yourself there to Me **, on the top of the mountain. 3 And** no one shall come up with you**, nor let anyone be seen anywhere on the mountain, nor let the flocks or herds graze in front of that mountain.
 
@@ -28,13 +28,13 @@ Heb. 11:6 But without faith it is impossible to be well pleasing to Him, for **h
 
 James 4:8a **Draw near to God** , and He will draw near to you.
 
-## Footnotes :
+## Footnotes
 
 Exo 34:4, note 2 To meet with God in the morning is not only to meet with Him early in the day; it is also to meet with God in a situation that is full of light (cf. Prov. 4:18). **Like Moses, we should go to God alone, without any persons, matters, or things to distract or occupy us** (v. 3; cf. Mark 1:35).
 
 Heb 4:16, note 2, par. 2 God's mercy and grace are always available to us. **However, we need to receive and find them by exercising our spirit to come to the throne of grace and contact our High Priest, who is touched with the feeling of all our weaknesses** . By this word the writer of this book encouraged the wearied Hebrew believers to receive mercy and find grace for timely help, that they might be set upright (12:12).
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 God the Father not only is seen by the pure in heart but also draws near to those who draw near to Him. James 4:8 says, "Draw near to God, and He will draw near to you." God can be seen, but we need to be pure in heart. Likewise, **God desires to draw near to us, but we need to draw near to Him** . If we do not draw near to Him, He will not draw near to us in our experience. **His drawing near to us hinges on our taking the initiative first to draw near to Him** . Whenever we draw near to God under the redeeming blood of Christ, we sense that God is near to us. He draws near to us that we may experience and enjoy Him. God shows His love and sympathy toward us by drawing near to us. **When He draws near to us, He also comforts us, encourages us, and strengthens us** . God the Father is near to those who draw near to Him that He may give them His love, sympathize with them, and comfort, encourage, and strengthen them. (_Truth Lessons, Level 2, Vol. 3_, Chapter 1)
 
@@ -44,7 +44,7 @@ In the early days of my experience, nearly every time I knelt down to pray, I sa
 
 [In Matthew 15] when the Lord Jesus referred to the Canaanite woman as a dog, she said, "Yes, Lord; for even the dogs eat of the crumbs which fall from their masters' table" (v. 27). The Canaanite woman, not offended by the Lord's word, but rather admitting that she was a heathen dog, considered that at that time Christ, after being rejected by the children, the Jews, became crumbs under the table as a portion to the Gentiles. If I had been the Lord, I would have said, "Yes, as a dog, you have your portion. But don't you realize how dirty you are? If you would eat Me as the crumbs, you need to wash yourself." According to doctrine, this woman definitely needed to be washed. But why did the Lord Jesus not ask her to wash herself before eating of Him? Here the Lord is emphasizing the matter of eating. But this does not mean that we do not need to be washed. The blood is available. We may strike the blood and eat the Lamb… I believe that the Lord Jesus did this purposely to show His disciples that they needed only one thing—the eating. Even if we are as dirty as pagan dogs, we still have the right and the position to eat Jesus. Oh, we need to be uninhibited eaters! Do not wait until you have washed. **Come to the Lord just as you are and eat of Him. As the words of a hymn say, "Just as I am, I come." We need to say, "Lord, I come just as I am. I don't need to change or to be cleansed. Lord, I need You, and I come to You to eat. Even if I am a dirty dog, I come to You just as I am." Eating is primary, and eating is everything.** (_Life-Study of Matthew,_ Chapter 46)
 
-## Hymns :
+## Hymns
 
 _ **Hymn 1048** _
 

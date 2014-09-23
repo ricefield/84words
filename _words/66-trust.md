@@ -6,7 +6,7 @@ categories: dealing
 
 **Dictionary definition** : reliance on [the](http://dictionary.reference.com/browse/the)integrity, strength, ability, surety, of a person or thing; confidence.
 
-## Scriptures :
+##Scriptures
 
 Prov. 3:5 **Trust in Jehovah with all your heart,** / And do not rely on your own understanding;
 
@@ -22,13 +22,13 @@ Isa. 26:4 **Trust in Jehovah forever and ever** , / For in Jah Jehovah we have a
 
 Phil. 3:3 For we are the circumcision, the ones who serve by the Spirit of God and boast in Christ Jesus and **have no confidence in the flesh** .
 
-## Footnotes :
+## Footnotes
 
 1 Sam. 30:81 **David was a person who trusted in God and walked according to God's sovereignty in all his trials** (17:36-37; 23:14-16). While he was under trial, he sought God's leading (vv. 6b-10). He was one with God and behaved according to God.
 
 Psa. 51:51 To confess, as David did here, that we were born in sin indicates that we have no trust in ourselves (cf. Rom. 7:18; Phil. 3:3). **Realizing that we are sinful and God is holy, we trust only in Him** . Also, we realize that we need Christ to be our Mediator and our sacrifice (see note 71).
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 We may say, "I do not trust in myself. I trust in the Lord." To say this is easy. We do not know how much we cheat ourselves in saying this. It is not easy to lose our trust in ourselves. Every one among us is a self-trusting one. It is really hard for us to get rid of self-trust. Even little children have self-trust. They may love their mother very much, but they do not trust in their mother; they trust in themselves. The more a child grows, the more that child trusts in himself. A mother realizes that after a child becomes five years of age he no longer trusts in her. The more one grows, the more he trusts in himself. For every full-grown man there is the full-grown trust in the self. We may have no trust in others and no trust in the Lord. **Our trust is only in ourselves. To learn the lesson not to trust in ourselves but in the Lord is not easy because of our cleverness, wisdom, natural strength, and natural motive. We need many years to be rid of our natural cleverness, natural wisdom, natural strength, and natural motive** (_Enjoying the Riches of Christ for the Building Up of the Church as the Body of Christ,_ Chapter 10).
 
@@ -40,7 +40,7 @@ As an ambassador of Christ, Paul realized that whatever was within him, whatever
 
 When we reject ourselves in this way, only Christ is left. Then whatever we do will be the experience of Christ. When the unbelievers reject themselves and repudiate their flesh, nothing remains. But when we reject ourselves, we enjoy Christ as the remainder. Christ is what remains after we have rejected our flesh and all we are by nature. This is not merely a doctrine; it is our experience (_The Experience of Christ,_ Chapter 6).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 568** _
 

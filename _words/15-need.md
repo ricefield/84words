@@ -42,7 +42,7 @@ Brothers and sisters, please remember that there is a spirit in man, that there 
 
 ## Hymns:
 
-## I Need You, Jesus, ss. 1-3
+### I Need You, Jesus, ss. 1-3
 <pre>
 1. I need You, Jesus,  
     More and more each day.  
@@ -75,7 +75,7 @@ Brothers and sisters, please remember that there is a spirit in man, that there 
         I need Your sweet taste.
 </pre>
 
-## Hymn 371
+### Hymn 371
 <pre>
 1. I need Thee every hour,
     Most gracious Lord;

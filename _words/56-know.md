@@ -5,7 +5,7 @@ subheading: "I may know Him"
 categories: assimilating
 ---
 
-## Scriptures :
+##Scriptures
 
 Jer. 31:34 And they will no longer teach, each man his neighbor and each man his brother, saying, Know Jehovah; **for all of them will know Me, from the little one among them even to the great one among them** , declares Jehovah, for I will forgive their iniquity, and their sin I will remember no more.
 
@@ -17,7 +17,7 @@ Phil. 3:8 But moreover I also count all things to be loss on account of **the ex
 
 1 John 5:20 **And we know that the Son of God has come and has given us an understanding that we might know Him who is true;** and we are in Him who is true, in His Son Jesus Christ. This is the true God and eternal life.
 
-## Footnotes :
+## Footnotes
 
 Jer. 31:341 **To know God is to live God** . **Through the spontaneous, automatic function of the divine life within us, we have the capacity to know God, to live God, and even to be one with God** in His life and nature so that we may be His corporate expression. See note 31 in John 17.
 
@@ -29,7 +29,7 @@ Matt. 11:272 **Full knowledge** , not mere objective acquaintance. Concerning th
 
 1 John 5:202 (know) **This is the ability of the divine life to know the true God (John 17:3) in our regenerated spirit** (Eph. 1:17) through our renewed mind, enlightened by the Spirit of reality.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 In [John 17:] 3 the Lord said, "And **this is eternal life, that they may know You, the only true God, and Him whom You have sent, Jesus Christ.** " What is eternal life? When I was young, I was told that eternal life was just a blessing in the future. **Eternal life is divine life with a special function—to know God (cf. Matt. 11:27) and Christ** . Every life has its function. The function of a dog's life is barking, the function of a bird's life is flying, the function of a cat's life is catching mice, and the function of a chicken's life is laying eggs. **The function of the divine life is to know God. God and Christ are divine. To know the divine person we need the divine life. Since the believers are born with the divine life, they know God and Christ (Heb. 8:11; Phil. 3:10)** . Hebrews 8:11 says that there is no need to teach any New Testament believers to know God. Why is there no need for this? Because every New Testament believer knows God. New Testament believers have the divine life, and the divine life is the life that knows God. We do not need to teach a dog to bark, because the dog's life has the barking function. Likewise, since we have the divine life, we do not need to be taught to know God, for the function of the divine life is to know God and Christ. **Oh, that I may know Christ! We all may know Christ because we have the divine life, the life whose function is to know God and Christ** . (_Life-Study of John_, Message 38, pp. 466-467)
 
@@ -45,7 +45,7 @@ You may know that Christ is joy, peace, and rest. Before you were saved, you did
 
 The excellency of the knowledge of Christ will attract us to Christ and motivate us to lay aside everything other than Him. If we see the surpassing worth of Christ, we shall be willing to count as loss not only worldly, material things, but even our culture, religion, and philosophy. I repeat, it is the excellency of the knowledge of Christ which causes us to drop everything else so that we may gain Christ and be found in Him. (_Life-Study of Philippians_, Message 21, pp. 172-173)
 
-## Hymns :
+## Hymns
 
 _ **Hymn 382** _
 

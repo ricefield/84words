@@ -4,7 +4,7 @@ title: Private
 categories: first
 ---
 
-## Scriptures :
+##Scriptures
 
 S. S. 1:4b The king has **brought me into his chambers** .
 
@@ -18,7 +18,7 @@ Eph. 3:17 That Christ may make His home in your hearts through faith, that **you
 
 Rev. 2:17 He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes **, to him I will give of the hidden manna** , and to him I will give a white stone, and upon the stone a new name written, which no one knows except him who receives it.
 
-## Footnotes :
+## Footnotes
 
 S.S. 1:4, note 2, par. 2: Through His death and resurrection Christ, as the last Adam, a man in the flesh, became the life-giving Spirit (1 Cor. 15:45; 2 Cor. 3:17). **As the all-inclusive consummated Spirit He visits us in our spirit privately, coming to us in a spiritual way, not in a physical way** .
 
@@ -32,7 +32,7 @@ Eph 3:17, note 4: To experience Christ we need faith and love (1 Tim. 1:14). Fai
 
 Rev 2:17, note 2: Manna is a type of Christ as the heavenly food that enables God's people to go His way. A portion of manna was preserved in a golden pot concealed in the Ark (Exo. 16:32-34; Heb. 9:4). The open manna was for the Lord's people to enjoy in a public way; the hidden manna, signifying the hidden Christ, is a special portion reserved for His overcoming seekers, who overcome the degradation of the worldly church. **While the church goes the way of the world, these overcomers come forward to abide in the presence of God in the Holy of Holies, where they enjoy the hidden Christ as a special portion for their daily supply** . This promise is being fulfilled today in the proper church life and will be fulfilled in full in the coming kingdom. If we seek the Lord, overcome the degradation of the worldly church, and enjoy a special portion of the Lord today, He as the hidden manna will be a reward to us in the coming kingdom. If we miss Him as our special portion today in the church life, we will surely lose the enjoyment of Him as a reward in the coming kingdom.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **We each need to consider whether we spend even ten or fifteen minutes each day to be with the Lord privately. Many of us do not spend even a short time with the Lord. Recently, I have discovered that many saints only come to the meetings and have fellowship with other saints but do not have a personal, private, direct contact with the Lord** . This is a great lack. If this is our case, it is truly difficult for us to practically abide in the Lord. Coming to the meetings surely helps us with some things, but according to my experience, coming to the meetings does not help us to contact the Lord directly that we may actually abide in the Lord. **To abide in the Lord in a practical way requires a personal, private, direct contact with the Lord** . (_Crucial Principles for the Proper Church Life_, Chapter 1)
 

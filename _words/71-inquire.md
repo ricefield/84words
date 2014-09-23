@@ -4,7 +4,7 @@ title: Inquire
 categories: worshipping
 ---
 
-## Scriptures :
+##Scriptures
 
 1 Sam. 30:8 **And David inquired of Jehovah, saying, Shall I pursue after this band?** Will I overtake them? And He said to him, Pursue, for you will certainly overtake them, and you will certainly deliver them.
 
@@ -16,11 +16,11 @@ Psa. 27:4 **One thing I have asked from Jehovah; / That do I seek: / To dwell in
 
 Ezek. 36:37 Thus says the Lord Jehovah, **Moreover for this I will be inquired of by the house of Israel to do it for them** ; I will increase them with men like a flock.
 
-## Footnotes :
+## Footnotes
 
 1 Sam. 30:81 (inquired) David was a person who trusted in God and walked according to God's sovereignty in all his trials (17:36-37; 23:14-16). **While he was under trial, he sought God's leading (vv. 6b-10). He was one with God and behaved according to God** .
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **When coming before God, many people immediately begin to ask God for things and never inquire of Him** . **We should not ask God for things, but rather we should inquire of Him. Even if we want to pray for the church, we should first inquire of the Lord, saying, "Lord, I have a feeling to pray for the church. Is this Your will? Do You want me to pray for the church at this moment? How should I pray?" Prayer that is preceded by inquiring is the best prayer** .
 
@@ -42,7 +42,7 @@ After Abraham's thorough fellowship with the Lord, Genesis tells us, "And Jehova
 
 Strictly speaking, **the proper prayer is the Lord speaking through the one who prays. This is why we must learn to pray to behold His beauty and to inhale Him in order to express Him. If we do not know what to pray, we can groan, saying, "O Lord, I do not know how to pray or what to pray. O Lord...." Then we will have the best prayer** (_Enjoying Christ as the Word and the Spirit through Prayer,_ Chapter 7).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 784** _
 

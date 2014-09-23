@@ -6,7 +6,7 @@ categories: beholding
 
 Draw near, Come Forward
 
-## Scriptures :
+##Scriptures
 
 James 4:8a **Draw near to God** , and He will draw near to you.
 

@@ -4,7 +4,7 @@ title: Sing
 categories: worshipping
 ---
 
-## Scriptures :
+##Scriptures
 
 Psa. 96:1 **Sing to Jehovah a new song; / Sing to Jehovah, all the earth** .
 
@@ -22,7 +22,7 @@ Col. 3:16 Let the word of Christ dwell in you richly in all wisdom, teaching and
 
 Eph. 5:19 Speaking to one another in psalms and hymns and spiritual songs, **singing and psalming with your heart to the Lord.**
 
-## Footnotes :
+## Footnotes
 
 Psa. 81:41 According to God's ordination Israel, **God's elect, should live a joyful life** (cf. Phil. 4:4). The annual feasts, as well as the sabbatical year and **the year of jubilee, are times of rejoicing, singing, and shouting** (Lev. 23 and 25, and notes).
 
@@ -32,7 +32,7 @@ Col. 3:165 **Teaching and admonishing and singing modify the verb dwell** . **Th
 
 Heb. 2:123 This is the firstborn Son's praising of the Father within the Father's many sons in the church meetings. When we, the many sons of God, meet as the church and praise the Father, the firstborn Son praises the Father in our praising. It is not that He praises the Father apart from us and alone; rather, He praises within us and with us through our praising. **In our singing He sings hymns of praise to the Father. If then we do not sing, how can He sing? The more we sing to the Father, the more we enjoy His presence, His moving, His anointing, and His life-imparting within us. Thus we will grow in Him and be brought into His glorification above all** .
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **If an old person such as me can sing this way, you can do even better. Sing in your daily life. Even the more, sing in the meetings. This kind of singing is surely scriptural; it comes from a walk that is according to the Spirit. Even the more, it is an overflow of being filled with God in spirit** (_Key Points on the Home Meetings_, Chapter 3).
 
@@ -50,7 +50,7 @@ If we sincerely desire to be saturated with the living Word so that we may live 
 
 If we only read the Word, there is little opportunity for the portion we read to sink into us and saturate our being. **But if we sing the Word, and especially if we psalm it, we open our being more fully to the Word and give it the opportunity to sink into us and saturate us.** For example, if we sing Psalm 1, we shall enjoy the riches found in this short psalm. **Let us sing and psalm the Word of God not only in the meetings. Let us come to the Word daily to sing and psalm it with our whole being. In singing and psalming the Word of God, let us exercise our voice, our mind, our heart, and our spirit** (_Life-study of Philippians,_ Chapter 40).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 305** _
 

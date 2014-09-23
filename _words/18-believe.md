@@ -4,7 +4,7 @@ title: Believe
 categories: approaching
 ---
 
-## Scriptures :
+## Scriptures
 
 John 14:1 Do not let your heart be troubled; **believe into God** , **believe also into Me** .
 
@@ -20,7 +20,7 @@ Heb. 11:6 But without faith it is impossible to be well pleasing to Him, for **h
 
 1 Pet. 2:7 **To you therefore who believe is the preciousness** ; but to the unbelieving, "The stone which the builders rejected, this has become the head of the corner,"
 
-## Footnotes :
+## Footnotes
 
 Matt 8:26, note 1 **Faith comes from and depends on the word of the Lord** (Rom. 10:17). In v. 18 the Lord gave them a word, telling them to depart to the other side. If they had believed that word, they would not have needed to pray as they did in v. 25. They did not have a full realization concerning the Lord's word; thus, their faith was little.
 
@@ -36,7 +36,7 @@ Gal 2:16, note 1 Lit., faith of Jesus Christ. See note 221 in Rom. 3. Faith in J
 
 2 Cor. 4:13, note 2 "Not distinctly the Holy Spirit,—but still not merely a human disposition: the indwelling Holy Spirit penetrates and characterizes the whole renewed man" (Alford). "Spirit of faith: not distinctly the Holy Spirit, nor, on the other hand, a human faculty or disposition, but blending both" (Vincent). The spirit of faith is the Holy Spirit mingled with our human spirit. **We must exercise such a spirit to believe and to speak, like the psalmist, the things we have experienced of the Lord, especially His death and resurrection. Faith is in our spirit, which is mingled with the Holy Spirit** , not in our mind. Doubts are in our mind. Here spirit indicates that it is by the mingled spirit that the apostles lived a crucified life in resurrection for the carrying out of their ministry.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **Believing in God means to believe into God and to make ourselves one with God. In this kind of believing, a man admits that he is nothing, that he has nothing, and that he can do nothing. He agrees that he must be terminated** . **Thus, believing in God means to terminate ourselves and to let God be our very being, to let God be all that we should be. From the time we first believe in Him, we should not be anything** . We should be completely terminated and allow God to be everything in us (_Life-Study of Romans_, Chapter 7).
 
@@ -46,7 +46,7 @@ Many people have the mistaken impression that believing in the Lord Jesus is sim
 
 **Ephesians 1 speaks of the power that is toward us who believe. As those who believe in the Lord Jesus and in the Bible, we can all proclaim, "Hallelujah, I believe! I believe in the Lord Jesus and I believe in the Word of God."** We do not need to fast and pray in order to receive the divine power, for this power is toward us who believe. **By believing we are positioned and qualified to receive the power of God. Hallelujah, this power is toward us who believe!** The way to receive this power is not to fast and pray for several days; it is simply to use the switch… Satan is not afraid of our pitiful, begging prayers, but he is afraid of our speaking in faith. We need to say, "I believe, I speak, I have the power, I am strong." This is not superstition; it is our Christian faith. Ephesians 1:19 says that this transmission is "toward us who believe." The little word "to" indicates a transmission. The power toward us who believe is the Triune God, the Creator of the universe, who became incarnated, passed through crucifixion, entered into resurrection and ascension, and has come down to us. This power has been installed in us, just as electricity is installed in a building. **We need to believe that this power is now right within us.** Many of us, however, are too natural and too logical… Logic is always opposed to faith, and faith is opposed to logic… **Whether you had any feeling regarding it or not means nothing. What is important is that you believe whatever the Bible says** (_Life-Study of Ephesians, _Chapter 17).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 535, s. 1** _
 

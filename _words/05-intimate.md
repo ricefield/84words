@@ -4,7 +4,7 @@ title: Intimate
 categories: first
 ---
 
-## Scriptures :
+##Scriptures
 
 S. S. 1:2 Let him kiss me with **the kisses of his mouth** ! / For your love is better than wine.
 
@@ -14,7 +14,7 @@ Num. 12:7 My servant Moses is not so; / He is faithful in all My house. 8a With 
 
 1 Cor. 2:9 But as it is written, "Things which eye has not seen and ear has not heard and which have not come up in man's heart; **things which God has prepared for those who love Him** ." 10 But to us God has revealed them through the Spirit, for the Spirit searches all things, even the depths of God.
 
-## Footnotes :
+## Footnotes
 
 Psa 135:1, note 2, par. 2: Psalms 135—139 were written from different directions to express the sentiments of the psalmists before God. These psalms reveal that the writers were very close to God and were concerned for God's interests. **The psalmists must have been persons who were soaked with God and who were in the divine presence. Only in this way could they have been qualified to write such intimate psalms to the One whom they loved.**** Like the writers of these psalms, we should aspire to be those who are intimate with God and who live and walk not only in God's presence but even in God Himself** (1 John 4:15-16).
 
@@ -28,13 +28,13 @@ S.S. 1:2, note 1: The kisses of the mouth are the most intimate kisses. This yea
 
 1 John 1:6, note 1: **To have fellowship with God is to have intimate and living contact with Him in the flow of the divine life according to the Spirit's anointing in our spirit** (2:27). This keeps us in the participation and enjoyment of the divine light and the divine love.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **I have learned from experience how good it is to be intimate with the Lord and one with Him** . Sometimes we should not first speak to Him. We should let the Lord speak first. When He speaks, we should not immediately speak in return. **This means that we and the Lord should be like friends who take time to listen to each other** . Suppose a friend visits you and begins to speak to you about certain things. If you interrupt him and begin to speak about other matters, that would indicate that you do not care for what he is saying. That is not the way for intimate friends to converse together. **The proper way is that your friend talks to you, and you listen. Then, after a period of time, he will give you an opportunity to speak, and he will listen** . It certainly would not be proper for him to do all the talking and then, when he is finished, to say goodbye and leave. He should give you the opportunity to speak to him. This should also be true of our relationship with the Lord (_Life-Study of Exodus,_ Chapter 146).
 
 In the Father's presence we not only enjoy grace, the expression of love, but we also enjoy love itself. **We experience this love in a very intimate way.**** Because we enjoy the love of God in such an intimate way, we do not want to do anything that displeases the Father **. The Father hates fornication, uncleanness, and lust. If we walk in love, we shall stay away from such things. Because we love the Father, we shall not do anything to grieve His heart. What a tender, delicate walk this is! This is not simply living by grace; it is walking in love. We should always remember that we are children of God enjoying His love. We are saints separated unto Him and saturated with Him. Therefore, in our daily walk** we would always take care of the Father's feeling, for we live intimately in His tender love** (_Life-Study of Ephesians,_ Chapter 50).
 
-## Hymns :
+## Hymns
 
 _ **Just One Touch ss. 1-3** _
 

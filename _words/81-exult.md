@@ -6,7 +6,7 @@ categories: worshipping
 
 be beside oneself
 
-## Scriptures :
+##Scriptures
 
 Psa. 9:14 That I may tell out all Your praises / And, in the gates of the daughter of Zion, **exult in Your salvation.**
 
@@ -28,7 +28,7 @@ Rom. 5:2 Through whom also we have obtained access by faith into this grace in w
 
 1 Pet. 4:13 But inasmuch as you share in the sufferings of Christ, rejoice, so that also **at the revelation of His glory you may rejoice exultingly.**
 
-## Footnotes :
+## Footnotes
 
 Psa. 68:41 Indicating that **Israel, God's elect, triumphed in God and exulted before Him in His move on the earth. Today we too should exult in the move of God on earth from Christ's incarnation to His ascension** .
 
@@ -36,7 +36,7 @@ Rom. 5:24 Boast in Greek also has the meaning of **exult. This indicates our enj
 
 2 Cor. 5:131 I.e., **mad, as a fool, for God's glory** (Acts 26:24-25). The apostles' ecstasy was not an excitement out of folly, but it was to God and with God for His glory.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 In [1 Peter 1] verse 6 Peter continues, "In which [_time_, referring to "the time of the Lord's coming (1 Pet. 1:56)"] you exult, though for a little while at present, if it must be, you have been made sorrowful by various trials." **The word "exult" is stronger than the word "rejoice." To rejoice is to be joyful in an audible way; to exult is to rejoice with a full and complete release. When we exult, we are beside ourselves with rejoicing** …. Verse 8 says, "Whom having not seen, you love; in whom, not seeing at present yet believing, you exult with unspeakable and glorified joy"…. **we exult with unspeakable and glorified joy. This is a joy that it is beyond our ability to utter. Things that are wonderful are also unspeakable. In this verse Peter uses a special expression— "glorified joy." Glorified joy is joy immersed in the expression of God.** (_Life-Study of 1 Peter,_ Chapter 10)
 
@@ -48,7 +48,7 @@ For a Christian to be beside himself does not mean that he is beside himself wit
 
 Psalm 68:4 says, "Sing to God; sing psalms to His name; /Triumph in Him who rides through the deserts—/For Jah is His name—and **exult before Him** ." This indicates that Israel, God's elect, triumphed in God, who rode through the deserts, and exulted before Him. **Today we should triumph and exult in the move of God on earth, in His move from incarnation to ascension.** (_Life-Study of Psalms,_ Chapter 27)
 
-## Hymns :
+## Hymns
 
 _ **Hymn 113** _
 

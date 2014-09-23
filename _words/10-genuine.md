@@ -7,7 +7,7 @@ subheading: "Sincere, Truthful"
 
 
 
-## Scriptures :
+##Scriptures
 
 Josh. 24:14 Now therefore fear Jehovah, and **serve Him in sincerity and faithfulness** ; and put away the gods whom your fathers served across the River and in Egypt, and serve Jehovah.
 
@@ -15,11 +15,11 @@ Josh. 24:14 Now therefore fear Jehovah, and **serve Him in sincerity and faithfu
 
 John 4:23 But an hour is coming, and it is now, when the **true worshippers will worship the Father in spirit and truthfulness** , for the Father also seeks such to worship Him. 24 God is Spirit, and **those who worship Him must worship in spirit and truthfulness** .
 
-## Footnotes :
+## Footnotes
 
 John 4:24, note 5: ( **truthfulness** ): According to the context of this chapter and the entire revelation of John's Gospel, **truthfulness here denotes the divine reality becoming man's genuineness and sincerity** (which are the opposite of the hypocrisy of the immoral Samaritan worshipper—vv. 16-18) for the true worship of God. The divine reality is Christ (who is the reality—14:6) as the reality of all the offerings of the Old Testament for the worship of God (1:29; 3:14) and as the fountain of the **living water, the life-giving Spirit (vv. 7-15), partaken of and drunk by His believers to be the reality within them, which eventually becomes their genuineness and sincerity in which they worship God with the worship that He seeks** . See note 66 in 1 John 1; Rom. 3:7; and note 82 in Rom. 15.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **Genuine prayer is the result of a desire that comes from the heart. It is something that flows out from our inner being.** Genuine prayer is not made up of flippant and nice words. **Only genuine words that flow out from the deepest part of the heart can be considered as genuine prayer** . The goal of our prayer should be an answer from God rather than pleasing the brothers and sisters. (_Collected Works of Watchman Nee, The (Set 3) Vol. 48: Messages for Building Up New Believers (1),_ Chapter 14).
 

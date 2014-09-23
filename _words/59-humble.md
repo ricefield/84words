@@ -6,7 +6,7 @@ categories: dealing
 
 lowly
 
-## Scriptures :
+##Scriptures
 
 2 Chron. 7:14 **And My people, who are called by My name, humble themselves and pray and seek My face and turn from their evil ways; then I will hear from heaven and forgive their sin and heal their land** .
 
@@ -22,7 +22,7 @@ Phil. 2:3 Doing nothing by way of selfish ambition nor by way of vainglory, **bu
 
 1 Pet. 5:5 In like manner, younger men, be subject to elders; **and all of you gird yourselves with humility toward one another, because God resists the proud but gives grace to the humble** . 6 **Therefore be humbled under the mighty hand of God that He may exalt you in due time** .
 
-## Footnotes :
+## Footnotes
 
 Lev. 14:91 The hair of the head signifies man's glory in self-display; the beard, man's self-assumed honor; the eyebrows, man's excellencies, merits, and virtues issuing from his natural birth; and all the hair of the body, man's natural strength and ability. **The shaving off of all the hair and the bathing in water equal getting rid of the self with all its glory, honor, excellencies, merits, virtues, strength, and ability through the "razor" of the cross. When we have nothing and are nothing, we shall be clean** (cf. Phil. 3:7-11).
 
@@ -34,7 +34,7 @@ Matt. 7:12 **The kingdom people, living in a humble spirit under the heavenly ru
 
 1 Pet. 5:61 **In Greek the word is in the passive voice, indicating being made humble by God, mainly through sufferings in persecution (v. 10). This, however, requires that we cooperate with God's operation; we must be willing to be made humble, lowly, under the mighty hand of God. Hence, be humbled. Humbled is passive, but be is active. While God is acting to operate on us, we need to take the initiative to be operated on by Him** . To take the initiative is active; to be operated on is passive. This is our willingness to be under the hand of God, which is mighty to do everything for us.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 But if we are poor in our spirit, we are blessed. **To be poor in spirit is not only to be humble, but also to be emptied in our spirit** , in the depth of our being, not holding on to the old things of the old dispensation, but unloaded to receive the new things, the things of the kingdom of the heavens. We need to be poor, emptied, unloaded, in this part of our being so that we may realize and possess the kingdom of the heavens. This implies that the kingdom of the heavens is a spiritual matter, not a material one (_Life-Study of Matthew,_ Chapter 13).
 
@@ -44,7 +44,7 @@ I have had this experience many times, realizing that I am nothing, that I have 
 
 **What does it mean for us to say that humility is just the Lord Himself? It means that I do not have any humility and I cannot be humble. Even if the Lord gives me the strength to humble myself, I still cannot be humble. I can only say to the Lord, "You are my humility. I allow You to become my humility."** Brothers and sisters, what is the meaning of Christ becoming my humility? Simply put, it means that Christ replaces me and expresses His own humility in my place. When we ask God for power to humble ourselves, we may be able to humble ourselves for a while, but this humility is merely good behavior, a good attitude, a good intention, and a good condition. This humility is not Christ. When we ask the Lord to be our humility, we lift up our heads and say to Him, "Lord, I do not have any humility in me. Even if You give me the strength to humble myself, I still would not have humility. **Therefore Lord, I ask that You come and be my humility and that You be humble in my place." After we look to the Lord this way, any humility that we begin to have will be a spontaneous humility. Such humility will not be a work, but a living person—Christ Himself** (_Christ Becoming Our Wisdom,_ Chapter 1).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 1054** _
 

@@ -4,7 +4,7 @@ title: Remember
 categories: beholding
 ---
 
-## Scriptures :
+##Scriptures
 
 Deut. 5:15 And **you shall remember that you were a slave in the land of Egypt and that Jehovah your God brought you out from there with a mighty hand and an outstretched arm** ; hence, Jehovah your God commanded you to hold the Sabbath day.
 

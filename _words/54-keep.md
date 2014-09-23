@@ -6,7 +6,7 @@ categories: assimilating
 
 guard, hold fast, store up
 
-## Scriptures :
+##Scriptures
 
 Psa. 119:11 **In my heart I have treasured up Your word** / That I might not sin against You.
 
@@ -22,7 +22,7 @@ Col. 3:16 **Let the word of Christ dwell in you richly** in all wisdom, teaching
 
 2 Tim. 1:14 **Guard the good deposit through the Holy Spirit who dwells in us.**
 
-## Footnotes :
+## Footnotes
 
 1 Tim. 2:152Faith is for receiving the Lord (John 1:12), love is for enjoying Him (John 14:21, 23), and holiness is for expressing Him through sanctification. By faith we receive the Lord and thereby please God (Heb. 11:6); **by love we enjoy the Lord and thereby keep His word (John 14:23);** and by holiness we express the Lord and thereby see Him (Heb. 12:14).
 
@@ -30,7 +30,7 @@ Col. 3:16 **Let the word of Christ dwell in you richly** in all wisdom, teaching
 
 2 Tim. 1:142 Lit., is indwelling. The Holy Spirit dwells in our spirit (Rom. 8:16). **Hence, for us to guard the good deposit through the Holy Spirit requires that we exercise our spirit.**
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 "In my heart I have treasured up Your word" (Psa. 119:11, see also v. 98). **We should treasure up the word of the Bible in our hearts so that we can apply it at any time or place** . **Our hearts should store up the word of the Bible to prepare us for unexpected needs. We should diligently store up the word of the Bible in our hearts instead of looking for an applicable word in the Bible only when we encounter problems or difficulties.** Going to the Bible at such times is only a second-rate solution. The best solution is to treasure up the word of the Bible in our hearts so that when we encounter a specific need, we will be able to apply the word immediately. **The Bible should be not only in our hands but in our hearts. When we have the word of the Bible in our hearts, we can apply it to any situation, even if we do not have the Bible in our hands. This is proper.**
 
@@ -48,7 +48,7 @@ Colossians 3:16 and Ephesians 5:18-19 show that our reading of the Bible should 
 
 **From the time we were saved we have received many things from God as a deposit, like a deposit in**** a bank. Within us, and especially within our spirit, we have a divine deposit. God's life, God's Spirit, and all the precious truths we have seen in the Lord's recovery have been deposited into our being. ****How can we guard this deposit? We can guard this deposit only through the Holy Spirit who dwells in us. If we act, behave, and have our life in the Spirit, all that has been deposited into us will be guarded.** But if we neglect the Spirit and walk in the flesh and according to our mind, we shall be the same as the nations, who are apart from God (Eph. 4:17-18). If this is our situation, there will not be any guarding of the good things that have been deposited into our being. **We need to guard the good deposit by the Spirit, who is working within us to keep us in the divine fellowship. As we are preserved in fellowship with the Triune God, we shall have an intensified care for all the truths that have been deposited into our being. Because the Holy Spirit dwells in our spirit, guarding the good deposit through the Holy Spirit requires that we exercise our spirit** (_Conclusion of the New Testament, The (Msgs. 079-098),_ Chapter 14).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 812** _
 

@@ -4,7 +4,7 @@ title: Love
 categories: beholding
 ---
 
-## Scriptures :
+##Scriptures
 
 Exo 20:6 Yet **showing lovingkindness to thousands of generations of those who love Me** and keep My commandments.
 
@@ -18,7 +18,7 @@ Eph. 6:24 **Grace be with all those who love our Lord Jesus Christ in incorrupti
 
 1 John 4:19 **We love because He first loved us** .
 
-## Footnotes :
+## Footnotes
 
 Exo 20:6, note 2, note 1 **…In order for God and His people to be one, there must be a mutual love between them (John 14:21, 23).** The love between God and His people unfolded in the Bible is primarily like the affectionate love between a man and a woman (Jer. 2:2; 31:3). **As God's people love God and spend time to**** fellowship with Him in His word, God infuses them with His divine element, making them one with Him as His spouse, the same as He is in life, nature, and expression **(Gen. 2:18-25 and notes). See note 81, pars. 2 and 3, in ch. 19.
 

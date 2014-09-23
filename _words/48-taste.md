@@ -4,7 +4,7 @@ title: Taste
 categories: assimilating
 ---
 
-## Scriptures :
+##Scriptures
 
 Psa. 34:8 **Taste and see that Jehovah is good;** / Blessed is the man who takes refuge in Him.
 
@@ -16,7 +16,7 @@ S. S. 2:3 As the apple tree among the trees of the wood, / So is my beloved amon
 
 Heb. 6:4 For it is impossible for those who have once been enlightened and have tasted of the heavenly gift and have become partakers of the Holy Spirit 5 **And have tasted the good word of God** and the powers of the age to come.
 
-## Footnotes :
+## Footnotes
 
 Psa. 34:8, note 1 **God with His goodness can be tasted by us** (1 Pet. 2:3 and note 1). **We taste and see that God is good in His house, that is, in Christ, in the church, and eventually in the New Jerusalem** . See note 11 in Psa. 25.
 
@@ -24,7 +24,7 @@ S.S. 2:3, note 1 The lover appreciates Christ as the source of rich provision (a
 
 1 Pet. 2:3, note 1 **The Lord can be tasted, and His taste is pleasant and good. If we have tasted Him, we will long for the nourishing milk in His word** (v. 2).
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **David said, "How sweet are thy words unto my taste! yea, sweeter than honey to my mouth" (Psa. 119:103). The Word is an enjoyment, and it is even sweeter and more pleasant than honey to our taste. From all these verses we realize that the Word of God is not only for us to learn, but more for us to taste, to eat, to enjoy, and to digest** .
 
@@ -42,7 +42,7 @@ Brothers and sisters, the Bible is the breathing out of God. God breathes Himsel
 
 We do not read the Bible only for enlightenment, teaching, or instruction. There is something higher and deeper than all these. It is to touch God Himself in our inward parts. The Bible is not merely God's thought, doctrine, truth, or teaching. The word in the Bible is the breathing out of God. It is God who breathes Himself out. God Himself is in the word. He Himself is in the breath. Therefore, we cannot understand the word only with our mind. This is not enough. **We must learn to use our spirit to contact these words; we must touch God's breathing out in the words and must touch His element in the words. When we have such a contact, not only will we feel that we are in the presence of God, and not only will we have touched God, but we also will feel that we have tasted God** ; God will become our enjoyment within. **Whenever we have a good Bible reading, we have a good eating and drinking. It will satisfy us within, and we will truly have tasted the sweetness of God Himself** . (_On Knowing the Bible,_ Chapter 1, Section 6).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 564, s. 1** _
 

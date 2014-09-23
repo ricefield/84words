@@ -6,7 +6,7 @@ categories: beholding
 
 treasure, value, precious
 
-## Scriptures :
+##Scriptures
 
 S.S 1:13 **My beloved is to me a bundle of myrrh** / That lies at night between my breasts. 14 **My beloved is to me a cluster of henna flowers** / In the vineyards of En-gedi. 16a - **Oh, you are beautiful, my beloved; indeed, pleasant** !
 
@@ -16,7 +16,7 @@ Luke 7:38 And **she stood behind Him at His feet weeping and began to wet His fe
 
 Phil. 3:7 But what things were gains to me, these I have counted as loss on account of Christ. 8 But **moreover I also count all things to be loss on account of the excellency of the knowledge of Christ Jesus my Lord** , on account of whom I have suffered the loss of all things and count them as refuse that I may gain Christ.
 
-## Footnotes :
+## Footnotes
 
 Luke 7:38, note 3 (ointment) Indicating **the woman's appreciation of the Savior's great worth and sweetness** . Even the Savior's feet were precious and sweet to her affection.
 
@@ -26,7 +26,7 @@ Gal. 2:16, note 1 Lit., faith of Jesus Christ. See note 221 in Rom. 3. **Faith i
 
 Gal 5:6, note 3 **Love is related to our appreciation of Christ. Without such an appreciation, faith cannot operate** . **The hearing of faith awakens our loving appreciation** , and the more we love the Lord, the more faith operates to bring us into the riches, the profit, of the all-inclusive Spirit.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 In the Song of Songs, we see one who sought the Lord, and by her seeking, she found Him. Having found Him, she began to have sweet fellowship with Him…. **In her fellowship, first of all, the seeking one had a real appreciation of the Lord. She appreciated the Lord as a bundle of myrrh within and as a cluster of henna flowers without. She sought the Lord, she found the Lord, and in her fellowship with the Lord, she began to appreciate Him. Following this appreciation, there was the enjoyment** —she said that her beloved was like an apple tree. An apple tree is not only for appreciation, but also for enjoyment. First of all, she had the appreciation, and then she came into the enjoyment of eating the fruit of the apple tree under its shadow.
 
@@ -44,7 +44,7 @@ The **mature saints experience Christ in a detailed way. They understand His tho
 
 I love Him more today than ever before. As I speak of Him, a fire is burning within me. **The renewing that has taken place in my mind unto full knowledge according to the image of God has created appreciation within me for the Lord. This causes me to love Him** . When we have such a love for the Lord, we shall say, "Lord Jesus, I want to follow You at any cost. I am willing to pay any price, even the price of my life, to be one with You and be for You. Lord, I want to take You as my life and as my person. I want to live You, grow You, and produce You. Lord Jesus, I am here for You and for You alone" (_Life-Study of Colossians _p. 244-245).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 169** _
 

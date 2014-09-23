@@ -4,7 +4,7 @@ title: Obey
 categories: dealing
 ---
 
-## Scriptures :
+##Scriptures
 
 Exo. 19:5 Now therefore **if you will indeed obey My voice** and keep My covenant, then **you shall be My personal treasure** from among all peoples, for all the earth is Mine.
 
@@ -16,7 +16,7 @@ Acts 5:32 And we are witnesses of these things, and so is **the Holy Spirit, who
 
 1 Pet. 1:22 Since **you have purified your souls by your obedience to the truth** unto unfeigned brotherly love, love one another from a pure heart fervently.
 
-## Footnotes :
+## Footnotes
 
 S.S. 4:11 **This verse portrays the beauty of Christ's lover** in her singleness and insight by the Spirit (eyes like doves), which is invisible to the outsiders (behind your veil), and **in her submission and obedience through God's feeding (hair like a flock of goats) that subdues her disobedience among the disobedient people** .
 
@@ -28,7 +28,7 @@ Phil. 2:123 I.e., carry out, bring to the ultimate conclusion. We have received 
 
 1 Pet. 1:222 Our soul is composed of our mind, emotion, and will, which are also parts of our heart. To have our soul purified is to have our mind, emotion, and will, as parts of our heart, purified from any kind of defilement or contamination (Acts 15:9; James 4:8). Actually, this means to have our mind, emotion, and will delivered from all things other than God and fixed on God as the sole object and unique goal. **This kind of purification is accomplished by our obedience to the truth, which is the content and reality of our faith (see note 11, point 2, in 1 Tim. 1). When we obey the truth, the content and reality of our faith in Christ, our entire soul is concentrated on God and is thus purified from all things other than God.**** This is to have our souls saved from all filthiness by our receiving the implanted word (James 1:21), which is the sanctifying truth (John 17:17).**
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **We must believe and also obey. Not only do we need to obey once, but we must obey continuously** . Otherwise, we will come short and be unbalanced. Obedience without faith is powerless. Faith without obedience is idealistic. It is very painful to be obedient without faith. **Please remember the scriptural principles for our living: believing and obeying** . We cannot believe without obeying or obey without believing. To believe and yet not obey is false belief. To obey and yet not believe is asceticism. Today in the Lord's church, men either err in faith or in obedience. Every failure is the result of a shortage in one of the two or in both. There is either faith without obedience or obedience without faith, or there is neither faith nor obedience. (_Fact, Faith, and Experience_, Chapter 10)
 
@@ -40,7 +40,7 @@ Obedience is not an empty word. Quite a number of the brothers ask, "What should
 
 Obedience is the other end of authority. In order to have obedience, one must first keep the self out of the picture. **One must not try to obey with the self. There is the possibility of obedience only by living in the spirit. Obedience is the highest expression of response to God's will.** (_Authority and Submission_, Chapter 1)
 
-## Hymns :
+## Hymns
 
 _ **Hymn 582** _
 

@@ -6,7 +6,7 @@ categories: first
 
 continual
 
-## Scriptures :
+##Scriptures
 
 Psa. 16:8 **I have set Jehovah before me continually;** / Because He is at my right hand, I shall not be shaken.
 
@@ -18,13 +18,13 @@ Phil. 2:12 So then, my beloved, even as you have **always obeyed** , not as in m
 
 1 Thes. 5:16 **Always**** rejoice, 17 Unceasingly pray, 18 In everything give thanks**; for this is the will of God in Christ Jesus for you.
 
-## Footnotes :
+## Footnotes
 
 Phil. 2:12, note 4, par.2: In ch. 1 salvation comes through the bountiful supply of the Spirit of Jesus Christ, but here salvation comes from the operating God within us. The operating God is actually the Spirit of Jesus Christ. In both these cases salvation is **a practical, daily, moment-by-moment salvation** . The constant salvation in 1:19 is one in which a particular believer is saved from a specific encounter in a particular situation; whereas **the constant salvation in 2:12 is one in which any believer is saved from ordinary things in common situations in his daily living** .
 
 1Thes. 5:17, note 1 (Unceasingly) This is to have **uninterrupted fellowship with God in our spirit** . **It requires perseverance** (Rom. 12:12; Col. 4:2) **with a strong spirit** (Eph. 6:18).
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 We were reconciled to God through the death of Christ, and we are now being saved in His life. **This salvation is not our eternal salvation but our daily, moment by moment salvation** …This means that if we are not in God experientially, we cannot be saved in the life of Christ. **We must have a direct, instant union with God.**** To be saved minute by minute, we must be in God, in the direct, ****constant**** , and instant union with God** (_The Experience and Growth in Life,_ Chapter 16).
 
@@ -38,7 +38,7 @@ As we have seen, the leading of the Spirit is just the Spirit Himself who is so 
 
 We all love the Lord, but I would like to tell you that the best love we can render to the Lord is not doing anything before looking at Him. I don't say looking unto Him. Unto Him may indicate that He is far away from you, in the heavens. I mean looking at Him, realizing He is not only with you, but in you. **You need such an intimate contact, even such an instant and constant contact with Him. You must learn to build up such a habit. If we all could live this way, what a revolution it would make in our daily life!** Please take this word in a simple way. (_Perfecting Training_, Chapter 50, pp. 539-540)
 
-## Hymns :
+## Hymns
 
 _ **Hymn 812** _
 

@@ -4,7 +4,7 @@ title: Seek
 categories: approaching
 ---
 
-## Scriptures :
+##Scriptures
 
 1 Chron. 16:11 **Seek Jehovah and His strength; / Seek His face continually.**
 
@@ -26,7 +26,7 @@ Col. 3:1 If therefore you were raised together with Christ, **seek the things wh
 
 Heb. 11:6 But without faith it is impossible to be well pleasing to Him, for he who comes forward to God must believe that He is and that **He is a rewarder of those who diligently seek Him** .
 
-## Footnotes :
+## Footnotes
 
 Gen. 5:24, note 1 Enoch was the first person to be raptured. By this he escaped death, the ultimate issue of man's fall (Heb. 11:5). This first mentioning of the rapture establishes the principle of the rapture: our being raptured depends on our being mature in the divine life by our walking with God. Enoch walked with God day and night for three hundred years. According to Heb. 11:5-6, **he did this by faith, believing that God is and that He is a rewarder of those who diligently seek Him. After three hundred years of seeking God and walking with Him, Enoch was taken by God, thus obtaining the reward of not seeing death.**
 
@@ -46,7 +46,7 @@ Col. 3:1, note 2 This is the raising aspect of baptism, which is altogether cont
 
 Col 3:1, note 3 I.e., in the heavens; in contrast to on the earth in v. 2. **The heavens are linked to Christ and joined to the church. The things above include the ascended Christ and all things pertaining to Him. Therefore, to seek the things above is to seek to live Christ in and with the church** .
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 There is a real need, especially for the new and young believers who have not been built up in this way, to daily spend some time with the Lord, at least half an hour a day. I would recommend that you have a morning time, but if that is not convenient, you can use other times. The best time, however, is the morning. If possible, you must build up such a habit to spend at least half an hour to be with the Lord every day. Make this your top regulation. During this time simply read the word, understanding it spontaneously, but mostly spending your time in prayer. Do not try to read too much, and do not try to understand too much. Rather, always spend more and more time in prayer. I do not mean that you should bring many items to the Lord. Instead, simply pray according to what you understand. As to your needs, leave that to the Lord's care. **We have the promise that if we seek first His kingdom and His righteousness, our Father will take care of whatever we need (Matt. 6:33). You have to stand on this promise. Simply seek the Lord Himself; seek His kingdom, and seek His righteousness.** Then forget about your need, or rather, leave your need to His care. (_Practical Lessons on the Experience of Life_, Chapter 13)
 
@@ -54,7 +54,7 @@ There is a real need, especially for the new and young believers who have not be
 
 **To seek the things above and to set our mind on them is to live Christ, to have one living with Him** . When Christ prays in heaven, we should pray on earth. This means that there is a transmission between the Christ praying in heaven and us praying on earth. By means of this transmission we may pray in oneness with Him. We respond on earth to Christ's praying in heaven. None of us should be unemployed. We all have the responsibility to respond to Christ's heavenly transmission. **We need to live together with Christ by seeking the things which are above and setting our mind on them.** Christ is in heaven interceding, ministering, and administrating, and we are on earth responding to Christ's activity in heaven. (_Life-Study of Colossians_, Chapter 60)
 
-## Hymns :
+## Hymns
 
 _ **Hymn 1154, s. 1** _
 

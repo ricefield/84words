@@ -6,7 +6,7 @@ categories: dealing
 
 plea, beg, besought
 
-## Scriptures :
+##Scriptures
 
 Deut. 3:23 **And I pleaded with Jehovah** at that time, saying,
 

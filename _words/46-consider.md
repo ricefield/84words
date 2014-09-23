@@ -5,7 +5,7 @@ subheading: "Consider Him"
 categories: assimilating
 ---
 
-## Scriptures :
+##Scriptures
 
 **Lev. 11:3 Whatever** has a divided hoof, that is, has its hoof split in two, and **chews the cud among the beasts, that you may eat.**
 
@@ -23,7 +23,7 @@ Psa. 63:6 When I remember You while on my bed, / **When I consider You in the ni
 
 2 Tim. 2:7 **Consider what I say,** for the Lord will give you understanding in all things.
 
-## Footnotes :
+## Footnotes
 
 Lev. 11:3, note 1 Lit., divides the hoof, that is, splits the split of its hoofs (cf. vv. 7, 26). **Animals that divide the hoof and chew the cud (v. 3; cf. vv. 4-8, 26-28) signify persons who have discernment in their activities (Phil. 1:9-10) and who receive the word of God with much reconsideration (see note 15**** 1 ****in Psa. 119).**
 
@@ -33,7 +33,7 @@ Prov. 1:7, note 1, par. 2 (fear) **To revere God is to consider and regard Him i
 
 Mal. 3:16, note 1 **When we consider, love, regard, respect, and sanctify God's name, God keeps a record of this in His book of remembrance** .
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **Beasts that divide the hoof and chew the cud (vv. 2-3) signify persons who have discernment in their activities and who receive the word of God with much reconsideration….Chewing the cud signifies receiving the word of God with much consideration and reconsideration. Just as a cow chews its cud, we should consider and reconsider the word of God. We may do this while we pray-read early in the morning. As we are pray-reading, we may consider and reconsider the word. This is to chew the cud to receive nourishment by reconsidering what we receive from God's word** .
 

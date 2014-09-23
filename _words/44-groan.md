@@ -6,7 +6,7 @@ categories: assimilating
 
 sigh
 
-## Scriptures :
+##Scriptures
 
 Psa. 38:8 I am benumbed and crushed utterly; / **I cry out due to the groaning of my heart. 9 O Lord, all my desire is before You, / And my groaning is not hidden from You** .
 
@@ -14,7 +14,7 @@ Rom. 8:23 And not only so, but **we ourselves also, who have the firstfruits of 
 
 Rom. 8:26 Moreover, in like manner the Spirit also joins in to help us in our weakness, for we do not know for what we should pray as is fitting, but **the Spirit Himself intercedes for us with groanings which cannot be uttered** .
 
-## Footnotes :
+## Footnotes
 
 Psa 38:8, note 1 **Groaning here indicates that the psalmist had an inward burden to pray, but he did not know what to say. Hence, all he could do was groan** . See note 262 in Rom. 8.
 
@@ -24,7 +24,7 @@ Rom 8:26, note 1 In like manner indicates that prior to the help of the Spirit m
 
 Rom 8:26, note 2 **The weakness here is our ignorance of how we should pray. We do not know the kind of prayer God desires, and we are not clear how to pray, according to the burden we feel, for our being conformed to the image of God's Son; hence, we groan (v. 23). In our groaning the Spirit groans also, interceding for us** . His interceding is mainly that we may experience the transformation in life for growth into the maturity of sonship that we may be fully conformed to the image of God's Son.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 Paul continues to say, "For we do not know for what we should pray as is fitting, but the Spirit Himself intercedes for us with groanings which cannot be uttered." **The Spirit intercedes for us with groanings in our manner. This groaning apparently is our groaning, but in our groaning is the groaning of the Spirit. This is why His groaning is in the same manner as our groaning. He is in us and His groaning is in our groaning. He groans with us "in like manner." This is the best prayer we can have for the growth in life** . Most of our prayers are very utterable with clear words, but they may not be out of our spirit. But **when we have a real burden to pray yet we do not know how to utter it, then spontaneously we just groan with that burden without any utterable word** . This will be the best prayer within which the Spirit intercedes for us by groaning together with us.
 
@@ -38,7 +38,7 @@ There is no need to be formal or to have a good composition in our prayers. Inst
 
 Prayer is our spiritual breathing before God and in God. **Even though we often do not know what to say when we wait on God, there is a sighing within us. This sighing can be compared to breathing. Our experience shows that when we sigh a little, the weight on our shoulder disappears. We are fully released and rested, and we overflow with a sense of sweetness** . We may often find ourselves sinking into darkness and confusion within, not knowing which path we should take, what we should do, or even how we should pray. **But while we wait on the Lord, we utter a sigh from deep in our being. It is interesting that after sighing for a while, the darkness and confusion vanish, and we become clear and uncluttered, knowing the way to proceed** . This wonderful experience is the meaning of prayer. Real prayer is nothing but waiting on God and breathing in God. When we breathe, we exhale everything that we are and inhale everything that God is (_How to Enjoy God and How to Practice the Enjoyment of God,_ Chapter 5, pp. 58-59).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 764, ss. 1-3** _
 

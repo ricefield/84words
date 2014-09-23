@@ -4,7 +4,7 @@ title: Open
 categories: approaching
 ---
 
-## Scriptures :
+##Scriptures
 
 S. S. 5:2 I sleep, but my heart is awake. / A sound! My beloved is knocking. / **Open to me, my sister, my love** , / My dove, my perfect one; / For my head is drenched with dew, / My locks with the drops of night. 5 **I rose up to open to my beloved;** / And my hands dripped with myrrh, / My fingers with liquid myrrh, / Upon the handles of the bolt.
 
@@ -14,7 +14,7 @@ Acts 16:14 And a certain woman named Lydia, a seller of purple-dyed goods from t
 
 Rev. 3:20 Behold, I stand at the door and knock; **if anyone hears My voice and opens the door, then I will come in to him** and dine with him and he with Me.
 
-## Footnotes :
+## Footnotes
 
 Gen 2:15, note 2 Man's working the ground was that life, especially the tree of life (v. 9), might grow for the fulfillment of the first aspect of God's purpose, i.e., to express God in His image. The ground typifies the human heart, into which Christ as the seed of the tree of life is sown (Matt. 13:3-23). **To work the ground signifies to loosen and break our hard heart, to open our heart to the heavens that the Spirit as the rain** (see note 51) **may descend for the growth of Christ as the tree of life within us.**
 
@@ -32,7 +32,7 @@ Eph 1:18, note 1, par. 2 To have the eyes of our heart enlightened requires that
 
 Col 4:3, note 1 This implies that **we need to keep ourselves open to the word of God** .
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **If you want to fan your spirit into flame, you need to open up your mouth, open up your heart, and open up your spirit. You need to open these three layers of your being.** You have to use your mouth to say, "O Lord Jesus." But then you have to go deeper by using your mouth with your heart to say, "O Lord Jesus." Then you need to go even deeper by using your mouth with your heart and with your spirit to say, "O Lord Jesus." This is to open up your spirit from deep within. Then the fire burns. If you are down, you should call, "O Lord Jesus" again and again from deep within with the exercise of your spirit. Then you will be up (_The Spirit with our Spirit_, Chapter 8).
 
@@ -40,7 +40,7 @@ In the spiritual realm, the mind with all the thoughts is the lens, and a right 
 
 **God only wants us to love Him and to keep ourselves open to Him. "Lord, I love You. I fully realize that I am just an empty vessel…Have mercy upon me that I may keep myself open to You all the time." We all have to confess that many times in our prayer we are not open to Him.** Even in our prayer we still keep ourselves closed. Since the day we were saved, we never opened ourselves in an absolute way. **We always opened ourselves with some amount of reservation** . Even you yourself probably do not realize that the reservation is there. It is hidden. **You think that you are open to the Lord. Actually, you are not entirely open. You are open, but only partially. You are open superficially and in a shallow way. In the depths of your being you are not open, so the Lord cannot do anything** . If you look into [Paul's Epistles] you may say that the summary of these fourteen Epistles may be expressed in just two words: **open vessel. God wants an open vessel. What is the meaning of an open vessel? An open vessel is doing nothing but keeping itself open to the filling up** . The processed God—the Triune God, the all-inclusive Spirit, the compound Spirit—is here waiting for an opening to get into you. How much He would enter into you depends upon how much opening you would give Him. It is really hard to have a person on the one hand absolutely open to the Lord and on the other hand, doing nothing. If you can love the Lord and yet do nothing, that would be a miracle. When you love someone, surely you want to do something for him. But the Bible logic says love the Lord, but don't do anything for Him by yourself. Love the Lord to the uttermost; don't do anything for Him by yourself. You have to be active-passive. To love the Lord to the uttermost is to be active. Not to do anything is to be passive. **What the Lord wants is that we love Him, that we keep ourselves open** . Don't do anything. Let Him in. (_Perfecting Training_, Chapter 22)
 
-## Hymns :
+## Hymns
 
 _ **Hymn 784, s 2 & Chorus** _
 

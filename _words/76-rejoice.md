@@ -6,7 +6,7 @@ categories: worshipping
 
 delight, exult, joy
 
-## Scriptures :
+##Scriptures
 
 Psa. 85:6 Will You not again **revive us, / That Your people may rejoice in You** ?
 
@@ -26,7 +26,7 @@ Phil. 4:4 **Rejoice in the Lord always; again I will say, rejoice.**
 
 1 Pet. 4:13 But inasmuch as you share in the sufferings of Christ, **rejoice, so that also at the revelation of His glory you may rejoice exultingly** .
 
-## Footnotes :
+## Footnotes
 
 Lev. 25:103 Perhaps related to the word ram; meaning a time of shouting, or a time of the trumpeting of the ram's horn. The trumpeting of the ram's horn signifies **the preaching of the gospel as the proclaiming of liberty in the New Testament jubilee to all the sinners sold under sin (Luke 4:18-19; Acts 26:17b-18) that they may return to God and God's family and may rejoice with shouting in the enjoyment of God's salvation** .
 
@@ -36,7 +36,7 @@ Phil. 3:12  **To rejoice in the Lord is a safeguard, a security** .
 
 Phil. 4:41 **Rejoicing affords us the strength for the oneness** spoken of in vv. 2 and 3. Furthermore, **rejoicing in the Lord is the secret of having the excellent virtues** listed in vv. 5-9.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 Philippians 4:4 says, "Rejoice in the Lord always." In describing joy, the Bible uses either the word great, full, or always. Always means "all the time." Paul was saying, "Have you heard this word? If you have not heard it yet, let me repeat it for you: 'Again I will say, rejoice.'" **If we did not get it yet, he would repeat it once more—that we should rejoice. The life that God gives is a life of joy. Rejoicing is the daily life of a Christian.** There may be tribulations and trials, but there is still rejoicing. The opposite of rejoicing is being anxious. Many people are anxious for their children, their money, or their business. But the Word of the Lord says, "In nothing be anxious" (Phil. 4:6). We think that anxiety is justified, but the Lord says, "In nothing be anxious." This is because we should always rejoice (The Overcoming Life, Chapter 10).
 
@@ -44,7 +44,7 @@ Philippians 4:4 says, "Rejoice in the Lord always." In describing joy, the Bible
 
 A widow who has just lost her husband, whose possessions are about to be pawned, and whose landlord is about to drive her out of the house is suffering greatly under these circumstances. Yet she can still play with her little baby. She cannot rejoice in the house, her deceased husband, or her surroundings. But she can rejoice. She can rejoice in her baby. **In the same way, God has not asked us to rejoice in our environment, in things going our way, or in any kind of happiness. God tells us to "rejoice in the Lord." The world may oppose us, misunderstand us, reject us, and trap us, but no one can cover the heavens from us. The Lord never changes** . The world could put Paul into prison and lock him up, but it could not keep the Lord within Paul away from him. Therefore, Paul and Silas were able to sing and praise God within the prison cell. **We should be clear about one thing: do not rejoice in the environment; rather, rejoice in our Lord. When friends and relatives are away and the heart is aching and weeping, we can be comforted and rejoice if we look to the Lord who loves us and whom we love. He is enough to satisfy our heart** . But Christians are very forgetful! We may hear about this today but forget about it tomorrow! This is why Paul followed by saying, "Again I will say, rejoice." **God's intention is that we rejoice. Therefore, whatever happens, we must rejoice** (_Collected Works of Watchman Nee, The (Set 1) Vol. 18: Notes on Scriptural Messages (2),_ Chapter 4).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 717** _
 

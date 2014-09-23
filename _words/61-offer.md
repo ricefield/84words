@@ -6,7 +6,7 @@ categories: dealing
 
 consecrate, vow, devote, surrender
 
-## Scriptures :
+##Scriptures
 
 Psa. 50:14 **Offer to God a sacrifice of thanksgiving** , / And repay your vows to the Most High.
 
@@ -18,7 +18,7 @@ Rom. 12:1 I exhort you therefore, brothers, through the compassions of God to **
 
 Heb. 13:15 **Through Him then let us offer up a sacrifice of praise continually to God** , that is, the fruit of lips confessing His name.
 
-## Footnotes :
+## Footnotes
 
 Psa 110:32 **In the eyes of the Lord our willing consecration, our offering ourselves to Him, is a matter of splendor** . **Although the church has become degraded, throughout the centuries there has been a line of those who have offered themselves willingly to the Lord in the splendor, the beauty, of their consecration.**
 
@@ -32,7 +32,7 @@ Rom 12:15, par. 1 In ch. 6 the members of our body are to be presented as weapon
 
 1 Cor. 6:151 Because we are organically united with Christ (v. 17), and because Christ dwells in our spirit (2 Tim. 4:22) and makes His home in our heart (Eph. 3:17), our entire being, including our purified body, becomes a member of Him. **Hence, to practice such membership we need to offer our body to Him (Rom. 12:1, 4-5).**
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 In [Psalm 110:] 3 we are told that in the day of His forces, or army, Christ's people will offer themselves willingly "in the splendor of their consecration." **Do you realize that in the eyes of the Lord our willing consecration, our offering ourselves to Him, is a kind of splendor?**** Although the church has become degraded, throughout the centuries there has been a line of those who have offered themselves willingly to the Lord in the splendor, the beauty, of their consecration. Giving up everything on earth, thousands have offered themselves freely to Christ, and with this offering there was the splendor of consecration**. John Nelson Darby was such a person. Darby lived to be eighty-four years of age and, because of his love for Christ, he never married. One day, in his old age, he was staying alone in a hotel and he said, "Lord Jesus, I still love You." No doubt, Darby was a freewill offering to the Lord in the splendor of consecration.
 
@@ -48,7 +48,7 @@ The offering for thanksgiving is emotional and superficial, but the offering for
 
 The book of Leviticus begins with our offering of Christ in many aspects to God for the satisfaction of both God and man, and it ends with our devoting ourselves and our possessions to God for our vow to Him. But what does the word devote mean? What does it mean to say that we devote ourselves to God? Some may think that devote is the same as to offer or to consecrate. According to my understanding, to devote is stronger than to offer or to consecrate; it is also stronger than to give, to present, to yield, and to surrender. A devotion must always go with a vow. Something may be offered or given without a vow being involved; but if something is given to a person in a will, that is a kind of devotion with a vow. Such a devotion cannot be changed. For this reason, to devote is stronger than to offer. (_Life-Study of Leviticus_, Chapter 62)
 
-## Hymns :
+## Hymns
 
 _ **Hymn 471** _
 

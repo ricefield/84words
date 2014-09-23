@@ -6,7 +6,7 @@ categories: worshipping
 
 extol
 
-## Scriptures :
+##Scriptures
 
 Exo. 34:14 (For **you shall not worship any other god; for Jehovah, whose name is Jealous, is a jealous God** ),
 
@@ -20,7 +20,7 @@ John 4:23 But an hour is coming, and it is now, when **the true worshippers will
 
 John 4:24 **God is Spirit, and those who worship Him must worship in spirit and truthfulness** .
 
-## Footnotes :
+## Footnotes
 
 Psa. 45:112 In v. 1 Christ is the King, in v. 2 He is a man, in v. 6 He is God, and in this verse **He is the Lord. As the Lord of the church, Christ is worthy not only of the church's love but also of her worship.**
 
@@ -30,7 +30,7 @@ John 4:243 This word was given to instruct the Samaritan woman regarding her nee
 
 Heb 9:145 This book does not teach religion; rather, it reveals the living God (3:12; 9:14; 10:31; 12:22). **To touch this living God we need to exercise our spirit (4:12) and have a blood-purified conscience in our spirit.**
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 In [John 4] verse 24 the Lord said, "God is Spirit; and those who worship Him must worship in spirit and reality." **To worship God is to contact God, to enjoy God, and to partake of all He is. Worshipping God is a matter of taking God into us.** It is not merely objective, but also subjective. This is proved by the fact that on the one hand, in this chapter the Lord speaks about worship and, on the other hand, about drinking the living water (v. 14). If we put verses 14 and 24 together, **we shall see that to drink of the living water is to worship God. Moreover, worshipping God by our spirit and in our spirit is the real drinking of the living water, which is God Himself. God Himself is the Spirit, and this Spirit is the living water. We drink this living water by worshipping God. Hence, drinking of God and worshipping Him are synonymous. We all must drink the very God who is the living water, the Spirit** . (_Life-Study of John,_ Chapter 51)
 
@@ -44,7 +44,7 @@ We learn to walk step by step. If we want to learn to walk before God, we will h
 
 **Toward the end of our fellowship, if there is still time, we should also worship God. It is rather difficult to describe exactly what worship is and what our inner condition should be when we worship. We may say that worship is a lingering before God.** We should not simply get up and leave as soon as we have finished praising and thanking God. No, we should linger before Him a little longer. **This kind of lingering is the issue of our heart's desire for God. It involves beholding, waiting, and inquiring; we behold God's glory, lingering before Him to wait on Him and inquire of Him.** This is not an inquiring related to specific things. Instead, it is a waiting out of a desire to know His will. All these things are included in worshipping. (_Lessons for New Believers_, Chapter 23)
 
-## Hymns :
+## Hymns
 
 _ **Hymn 35** _
 

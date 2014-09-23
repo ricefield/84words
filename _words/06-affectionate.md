@@ -4,7 +4,7 @@ title: Affectionate
 categories: first
 ---
 
-## Scriptures :
+##Scriptures
 
 S.S. 1:2 Let him kiss me with the kisses of his mouth! / For your love is better than wine.
 
@@ -14,7 +14,7 @@ Luke 7:38 And she stood behind Him at His feet weeping and began to wet His feet
 
 Rom. 8:15 For you have not received a spirit of slavery bringing you into fear again, but you have received a spirit of sonship in which **we cry, Abba, Father** !
 
-## Footnotes :
+## Footnotes
 
 S.S. 1:2, note 1, par 2: According to vv. 2-3, the lover of Christ has obtained a part of Christ's love, but now she yearns for something more intimate. This indicates that the **very Christ in whom we believe is personal and affectionate toward us** , **and that**** every believer's relationship with Christ must be personal and affectionate **(Mark 16:7 and note; John 13:23; 20:1-17; Gal. 2:20b). After believing in Christ to receive Him as the divine life (John 1:4, 12),** we need to love Christ in a personal and affectionate way that we may pursue Him and enjoy Him as our satisfaction** (1 Cor. 2:9 and note 3; 1 Tim. 1:14 and note 2).
 
@@ -22,7 +22,7 @@ Exo 20:6, note 2, par. 1: The mentioning of love here indicates that God's inten
 
 Gal 4:6, note 4: Abba is an Aramaic word, and Father is the translation of the Greek word Pater. Such a term was used first by the Lord Jesus in Gethsemane while He was praying to the Father (Mark 14:36). The combining of the Aramaic title with the Greek title expresses a stronger affection in crying to the Father. **Such an affectionate cry implies an intimate relationship in life between a genuine son and a begetting father** .
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 The entire Bible is a divine romance. This means that the Bible is a very romantic book. This is true in particular of Song of Songs. Certain modernists doubt whether Song of Songs should be included in the Bible. Even some proper Christian teachers have had doubts about this book. When I was young, I also wondered why such a book is in the Bible, a book concerned with a romance between a man and a woman. This book is a portrait of the love relationship between us and Christ. According to Song of Songs, our relationship with the Lord should be very romantic. If there is no romance between us and the Lord Jesus, then we are religious Christians, not romantic Christians. If you wish to know what I mean by romance, I would encourage you to read and pray-read Song of Songs **. Pray-reading this book of romance will cause you to become romantic with the Lord. You will be beside yourself with love for Him. The Bible is a divine romance, and our relationship with the Lord should become more and more romantic** (_Life-Study of Exodus_, Chapter 5).
 

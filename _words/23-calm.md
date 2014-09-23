@@ -6,7 +6,7 @@ categories: approaching
 
 still, tranquil
 
-## Scriptures :
+##Scriptures
 
 Psa. 37:7 **Be still before Jehovah, and wait for Him** ; / Do not be incensed because of him who enjoys prosperity on his way, / Because of the man who performs his evil schemes.
 
@@ -18,13 +18,13 @@ Isa. 30:15a For thus says the Lord Jehovah, the Holy One of Israel, / **In retur
 
 Luke 10:39 And she had a sister called **Mary, who also sat at the Lord's feet and was listening to His word** . 40 But Martha was being drawn about with much serving, and she came up to Him and said, Lord, does it not matter to You that my sister has left me to serve alone? Tell her then to do her part with me. 41 But the Lord answered and said to her, Martha, Martha, you are anxious and troubled about many things; 42 But there is need of one thing, for **Mary has chosen the good part, which shall not be taken away from her** .
 
-## Footnotes :
+## Footnotes
 
 Psa. 131:2, note 1 The psalmist had been weaned, or stripped, of everything except the Lord (cf. Psa. 73). **When we have become like the psalmist, humble, calm, quiet, and weaned, we can advise others to hope in God** (v. 3).
 
 1 Pet. 1:13, note 2 (sober) **Calm and clear in mind, able to realize God's economy in His salvation** , as revealed in vv. 3-12, without being disturbed by fear, anxiety, or any care.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 The Lord prefers His saved ones who love Him to listen to Him (v. 39) that they may know His desire, rather than do things for Him without knowing His will (cf. 1 Sam. 15:22; Ecc. 5:1)… His desire was that His saved ones would listen to Him in order to know what was on His heart… **He wanted those who loved Him to be silent, to sit with Him, to listen to Him, and to concentrate on His speaking…**
 

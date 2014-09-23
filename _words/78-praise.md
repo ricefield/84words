@@ -6,7 +6,7 @@ categories: worshipping
 
 glory, celebrate, adore, appreciate
 
-## Scriptures :
+##Scriptures
 
 Psa. 34:1 I will bless Jehovah at all times; / **His praise will continually be in my mouth** .
 
@@ -26,13 +26,13 @@ Acts 16:25 And about midnight Paul and Silas, **while praying, sang hymns of pra
 
 Heb. 13:15 **Through Him then let us offer up a sacrifice of praise continually to God** , that is, the fruit of lips confessing His name.
 
-## Footnotes :
+## Footnotes
 
 Psa 8:22 The Septuagint translates, perfected praise (cf. Matt. 21:16).
 
 Heb. 13:151 Verse 15 is a continuation of vv. 8-14. Since in the church life we enjoy the unchanging Christ as grace and follow Him outside religion, we should offer through Him spiritual sacrifices to God. **First, in the church we should offer up through Him a sacrifice of praise to God continually. In the church He sings in us hymns of praise unto God the Father (2:12). In the church we too should praise God the Father through Him. Eventually, in the church He and we, we and He, praise the Father together in the mingled spirit.** He, as the life-giving Spirit, praises the Father in our spirit, and we, by our spirit, praise the Father in His Spirit. This is the best and highest sacrifice that we can offer to God through Him. This is greatly needed in the church meetings.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **David said in a psalm that he prayed to God three times a day (Psa. 55:17). Yet in another psalm, he said that he praised God seven times a day (119:164)** . **David was inspired by the Holy Spirit when he acknowledged the importance of praising. He prayed only three times a day, but he praised seven times a day** . Furthermore, he appointed Levites to play psalteries and harps to exalt, thank, and praise God before the ark of His covenant (1 Chron. 16:4-6). When Solomon completed the building of Jehovah's temple, the priests carried the ark of the covenant into the Holy of Holies. When the priests came out of the Holy Place, the Levites stood beside the altar, sounded the trumpets, and sang with cymbals, psalteries, and harps. Together they sounded praises to God. At that moment, the glory of Jehovah filled His house (2 Chron. 5:12-14). Both David and Solomon touched God's heart and offered up sacrifices of praise that were pleasing to God. **Jehovah is enthroned upon the praises of Israel. We should praise the Lord all our life. We should sing praises to our God** . (Watchman Nee, _Praising_, Chapter 1)
 
@@ -44,7 +44,7 @@ The happiest persons are not always the ones who have the loudest praise. **The 
 
 A number of the sisters among us are still in their early twenties, but their fatigued attitude makes them seem like they are over one hundred years old. With them there is no freshness and no strength. With them nothing is in the morning; instead, everything is in the sunset. **They need to learn to praise the Lord. The weakest among men being perfected to praise the Lord indicates the highest consummation of the Lord's work in His redemption.** (_Life-Study of Psalms,_ Chapter 5, Section 5)
 
-## Hymns :
+## Hymns
 
 _ **Hymn 124** _
 

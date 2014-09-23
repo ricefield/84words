@@ -4,7 +4,7 @@ title: Apply
 categories: dealing
 ---
 
-## Scriptures :
+##Scriptures
 
 Rom. 3:25 Whom God set forth as a propitiation place **through faith in His blood** , for the demonstrating of His righteousness, in that in His forbearance God passed over the sins that had previously occurred,
 
@@ -14,7 +14,7 @@ Heb. 10:22 Let us come forward to the Holy of Holies with a true heart in full a
 
 Rev. 12:10 And I heard a loud voice in heaven saying, Now has come the salvation and the power and the kingdom of our God and the authority of His Christ, for the accuser of our brothers has been cast down, who accuses them before our God day and night. 11 **And they overcame him because of the blood of the Lamb** and because of the word of their testimony, and they loved not their soul-life even unto death.
 
-## Footnotes :
+## Footnotes
 
 Gen. 6:143, par. 2 In order for the pitch on the ark to be effective, Noah and his family had to be in the ark, i.e., in union with the ark. Likewise, **in order to apply the redemption through Christ's blood, we must be in Christ, i.e., in union with Him by believing into Him** (John 3:16; 1 Cor. 1:30; Eph. 1:7). See notes 212 in ch. 3, 222 in Exo. 12, and 22 in 1 John 2.
 
@@ -24,7 +24,7 @@ Exo. 12:221 Hyssop was among the smallest of the plants (1 Kings 4:33). Here it 
 
 Rev. 12:112 The blood of the Lamb, which is for our redemption, answers before God all the accusations of the devil against us and gives us the victory over him. **We need to apply this blood whenever we sense the accusation of the devil.**
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **We must always apply the blood to our conscience.** However, we should not apply it in a wrong, foolish way, saying, "Maybe I am wrong, so I apply the blood." We must be clear with the enemy Satan. If we are not wrong, we must be bold to tell the enemy, "Satan, I am not wrong." But **if we are wrong, we should say, "Lord, I am wrong in this matter. Forgive me. I apply the blood," and to Satan we say, "Yes, I am wrong, but I have the blood." Then we must reject any kind of accusation** . (_Practical Lessons on the Experience of Life_, Chapter 11)
 
@@ -44,7 +44,7 @@ The third major item concerning the anointing is the Lord's blood. The more we i
 
 If we do not have the cleansing of the blood, we do not have the ground for the Holy Spirit to anoint us. The anointing is available only on the ground of redemption by the Lord's blood. The redeeming blood of the Lord is for cleansing, and the Spirit of the Lord is for anointing. We first must be cleansed by the blood of the Lord, and then we can be anointed by the Spirit of the Lord. (_Basic Principles of the Experience of Life_, Chapter 16)
 
-## Hymns :
+## Hymns
 
 _ **Hymn 889, ss. 3-5** _
 

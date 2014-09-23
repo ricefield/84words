@@ -6,7 +6,7 @@ categories: assimilating
 
 desperation, audible, loud, tears
 
-## Scriptures :
+##Scriptures
 
 **Psa. 39:12**** Hear my prayer, O Jehovah; / And give ear to my cry; / Do not hold Your peace at my tears.** / For I am a stranger with You, / A sojourner, as all my fathers were.
 
@@ -22,7 +22,7 @@ Mark 9:24 Immediately, **crying out,** the father of the child said, I believe; 
 
 Heb. 5:7 This One, **in the days of His flesh, having offered up both petitions and supplications with strong crying and tears to Him who was able to save Him out of death** and having been heard because of His piety.
 
-## Footnotes :
+## Footnotes
 
 1 Chron. 5:20, note 1 (cried) The children of Reuben, the Gadites, and the half tribe of Manasseh crying out to God that they might defeat their enemies and possess their land is a pattern for us today. **We too should cry out to God, telling Him that we want to gain more of Christ, possess more of Christ, and enjoy more of Christ as our God-allotted portion** (Col. 1:12). See note 101 in ch. 4.
 
@@ -30,7 +30,7 @@ Psa. 84:6, note 2 **When we pass through the valley of Baca, God makes this vall
 
 Psa. 84:6, note 3 **Those who come into the church life by passing through the valley of weeping find that this weeping eventually becomes a great blessing to them. This blessing is the Spirit (Gal. 3:14). The tears they shed are their own, but these tears issue in a spring, which becomes the early rain, the Spirit as the blessing** .
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 Let us read the story of a father and his son, and **we will understand immediately the profit of praying with tears before God.** Mark 9:24 says, "Immediately, crying out, the father of the child said, I believe; help my unbelief!" At that time, it was too painful for him. He hated the fact that he could not believe, or that his faith was not enough. On one hand, he saw his child in pain and could not make him better in spite of all that he had done. On the other hand, he sought for the help of the Lord's disciples, and they were unable to do anything. He was indeed frustrated. **Under such anxiety and pain, he could not contain himself; he had to cry and call on the Lord. What was the result? The Lord heard his prayer, and the child was healed. There is a reason for many prayers not being answered.**** It is because there are no tears**. (_Collected Works of Watchman Nee, The (Set 1) Vol. 19: Notes on Scriptural Messages (3),_ Chapter 5, Section 5)
 
@@ -44,7 +44,7 @@ Psalm 6:6 says, "I cause my bed to swim all night long; / With my tears I dissol
 
 **We pointed out that we need to go to the Lord individually to be stirred up in the first love for the Lord through repenting prayers. We need to make a thorough confession to the Lord. In our time with the Lord, we may say with tears, "Lord, I repent. I'm so sinful and dirty** ." I have been practicing this for close to seventy years. We all have to learn the lesson in our prayer not to teach the Lord. Mostly we should not ask the Lord to do something for us. **Instead, we should cry out desperately from the depths of our being, "Lord, I'm sinful! I need You, Lord."** The Bible even says that some beat their breast when they made their confession to the Lord (Luke 18:13). (_The Training and the Practice of the Vital Groups,_ Chapter 5, Section 1)
 
-## Hymns :
+## Hymns
 
 _ **Hymn 1054** _
 

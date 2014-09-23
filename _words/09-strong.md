@@ -4,7 +4,7 @@ title: Strong
 categories: first
 ---
 
-## Scriptures :
+##Scriptures
 
 Neh. 8:10b And do not be grieved, **for the joy of Jehovah is your strength** . 12 And all the people went their way to eat and to drink and to send portions and to make **great rejoicing, because they had understood the words that were declared to them** .
 
@@ -18,7 +18,7 @@ Isa. 40:31 Yet **those who wait on Jehovah will renew their strength** ; / They 
 
 Eph. 3:16 That He would grant you, according to the riches of His glory, to be **strengthened with power through His Spirit into the inner man** , 17 That Christ may make His home in your hearts through faith, that you, being rooted and grounded in love, 18 May be **full of strength to apprehend** with all the saints what the breadth and length and height and depth are.
 
-## Footnotes :
+## Footnotes
 
 Isa 12:2, note 3: Strength and song both indicate experience. **When God's salvation is experienced by us, it becomes our strength** , and eventually it will be our song, our praising.
 
@@ -32,7 +32,7 @@ Eph 3:16, note 5: **The Father strengthens us from within through the indwelling
 
 Eph 3:16, note 6: The inner man is our regenerated spirit, which has God's life as its life **. In order that we may experience Christ unto all the fullness of God, we need to be strengthened into our inner man. This implies that we need to be strengthened into our spirit through the Holy Spirit** .
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 **The saints are strong because the word of God is abiding in them (1 John 2:14b)** . When a man has an empty stomach and is hungry, he will surely be weak; there is no possibility that he will be strong. But if he eats, his strength will return, and he will be strong. **For you to be strong today, you need to be fed with the word of God** . Without the word of God, it is impossible for a person to be strong. (_Messages Given to the Working Saints_, p. 58)
 
@@ -42,7 +42,7 @@ The church life is constituted of those in the pattern of the Apostle Paul. **We
 
 When we were saved, Christ came into our spirit. Now we must give Him the opportunity to spread Himself throughout all the parts of our inner being. **As we are strengthened into the inner man, the door is opened for Christ to spread in us, to spread from our spirit to every part of our mind, emotion, and will. The more Christ spreads within us, the more He settles down in us and makes His home in us** . This means that He occupies every part of our inner being, possessing all these parts and saturating them with Himself. As a result, not only do we receive the revelation, but we also are filled with Christ. Then wherever we may go, we shall be the apostles, the sent ones, and the prophets, those who speak for Christ. (_Life-Study of Ephesians_, Chapter 32, Section 3)
 
-## Hymns :
+## Hymns
 
 _ **Hymns 782, ss. 3, 4 and 7** _
 

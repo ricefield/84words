@@ -6,7 +6,7 @@ categories: beholding
 
 hold, embrace, cleave
 
-## Scriptures :
+##Scriptures
 
 Deut. 13:4 You shall follow Jehovah your God; and you shall fear Him, keep His commandments, listen to His voice, serve Him, and **hold fast to Him** .
 
@@ -20,7 +20,7 @@ Luke 8:15 But that which is in the good earth, these are those who in a noble an
 
 Phil. 3:12 Not that I have already obtained or am already perfected, but I pursue, if even **I may lay hold of that for which I also have been laid hold of by Christ Jesus** .
 
-## Footnotes :
+## Footnotes
 
 Hab 1:1, note 1, par. 1 **(Habakkuk) Meaning embracing, or clinging to** . The meaning of the prophet's name indicates that in order for sinners to receive God's eternal salvation (2:4), which is actually God Himself (Isa. 12:2; Luke 2:30), **God became a man on the earth that He might embrace sinners and sinners might cling to Him** (cf. Luke 19:1-10). See note 41 in ch. 2 and note 41 in Hosea 11.
 

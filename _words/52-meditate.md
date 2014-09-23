@@ -6,7 +6,7 @@ categories: assimilating
 
 Consider, ponder, mind
 
-## Scriptures :
+##Scriptures
 
 Gen. 24:63 **And Isaac went out to meditate in the field toward evening** . And he lifted up his eyes and looked, and behold, camels were coming.
 
@@ -20,11 +20,11 @@ Psa. 143:5 **I remember the days of old; / I meditate upon all that You have don
 
 Rom. 8:5 For those who are according to the flesh **mind the things** of the flesh; but those who are according to the spirit, the things **of the Spirit** . 6 For the mind set on the flesh is death, but **the mind set on the spirit is life and peace** .
 
-## Footnotes :
+## Footnotes
 
 Psa. 119:151 (muse)   Rich in meaning, the Hebrew word for muse **(often translated meditate in the KJV)** implies to worship, to converse with oneself, and to speak aloud. To muse on the word is to taste and enjoy it through careful considering. Prayer, speaking to oneself, and praising the Lord may also be included in musing on the word. To muse on the word of God is to enjoy His word as His breath (2 Tim. 3:16) and thus to be infused with God, to breathe God in, and to receive spiritual nourishment.
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 In this message **we need to see that with Isaac there was also the matter of enjoyment. His life was a resting and enjoying life.** The record of Isaac's life does not indicate that he suffered much. Rather, it reveals that he was always resting. **This is proved by his meditating in the field (24:63). Could Isaac have meditated if he had not been quiet and restful? No. In order to meditate we must be restful.** Whenever we are troubled, we are unable to rest. Isaac was always resting. In Genesis 24, he had lost his mother, did not have a wife, and his servant had gone away from him. Yet, he was not troubled. He went to the field to meditate, not to cry out to the Lord. He did not say, "O Lord, what should I do? I have lost my mother, I do not have a wife, and my servant has gone away. Lord, have mercy upon me!" **Isaac did not cry out in that way. Instead, he meditated** (_Life-Study of Genesis,_ Chapter 64).
 
@@ -36,7 +36,7 @@ In this way of pray-reading one often wonders whether he is praying or reading. 
 
 This matter has much to do with our spiritual benefit. Many of us have wandering minds. Our minds are always wandering. It is difficult for us to be calm and to pray. Hence, it is difficult for us to live in fellowship with God or to live before His presence. **When we read the word by pray-reading and read-praying, we are saved from this condition. There is no need to pray too much or read too much. We simply need to read a little, pray a little, and meditate a little** . However, we should not let our thoughts wander. **We should meditate only on what we have read and prayed** . Then our wandering mind will be rescued. We will no longer be inwardly confused, and our spirit will become strong. **When we meditate in this way, there will be much prayer and intercession; we will receive burdens, guidance, and commissions from the Lord.** (_How to Enjoy God and How to Practice the Enjoyment of God,_ Chapter 14).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 190** _
 

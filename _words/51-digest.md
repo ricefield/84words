@@ -6,7 +6,7 @@ categories: assimilating
 
 assimilate, absorb
 
-## Scriptures :
+##Scriptures
 
 Ezek. 2:8 But you, son of man, hear what I say to you; do not be rebellious like that rebellious house. **Open your mouth and eat what I give you.**
 
@@ -16,7 +16,7 @@ John 6:35 Jesus said to them, I am the bread of life; he who comes to Me shall b
 
 Rev. 10:9 And I went to the Angel and told Him to give me the little scroll. And He said to me, Take it and devour it, and it will make your stomach bitter, but in your mouth it will be as sweet as honey. 10 And I took the little scroll out of the hand of the Angel and devoured it, and **it was as sweet as honey in my mouth; and when I had eaten it, my stomach became bitter.**
 
-## Footnotes :
+## Footnotes
 
 Exo 16:321 The open manna, the manna that lay on the ground every morning, was for the enjoyment of God's people in a public way. However, the omer of manna placed in a pot (v. 33) was hidden and was not for the congregation in a public way. The amount of manna kept in a pot before Jehovah was one omer, the same as the amount gathered and eaten by the people (vv. 16-18). **In spiritual experience, this indicates that the amount of Christ we eat is the amount we can preserve. The Christ whom we eat as open manna spontaneously becomes hidden manna by being digested and assimilated into our inner being.** Furthermore, whatever we eat of Christ will become a memorial in generations to come. The Christ whom we eat and enjoy will be an eternal memorial, **because such a Christ becomes our very constitution, enabling us to build up and even to become God's dwelling place in the universe.**
 
@@ -24,7 +24,7 @@ John 6:571 (eats) **To eat is to take food into us that it may be assimilated or
 
 Rev 10:102 When we receive the divine revelation by devouring it, it is sweet as we eat it, **but it becomes bitter as we digest it, that is, as we experience it.**
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 In the morning many saints spend time with the Lord. However, **even though they spend a certain amount of time with Him, they may not absorb much of His riches.** The reason is that they are in too much of a hurry. If we would absorb the riches of Christ into us as our nourishment, we should not be rushed. **We cannot absorb anything if we are in a hurry** .
 
@@ -36,7 +36,7 @@ Stanza 3 of _Hymns,_ #509 says, "The river does the Spirit show, / Coming man's 
 
 When we study the Word, we should not look for teachings, just as when we pray, we should not ask for many things. **The purpose of our prayer is to breathe in God. Similarly, the purpose of our reading the Bible is to assimilate God. The subject and the center of prayer is God Himself.** The subject and the center of reading the Word should also be God Himself. Just as we breathe ourselves out and breathe in God through prayer, we deny ourselves and receive all that God is through reading the Word. The real reading of the Word has nothing to do with acquiring teaching in the mind. Rather, it is a fresh assimilation of God in the spirit (_How to Enjoy God and How to Practice the Enjoyment of God,_ Chapter 6).
 
-## Hymns :
+## Hymns
 
 _ **Hymn 612, ss. 1-4** _
 

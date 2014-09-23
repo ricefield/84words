@@ -4,7 +4,7 @@ title: Intercede
 categories: worshipping
 ---
 
-## Scriptures :
+##Scriptures
 
 Gen. 18:24 Suppose there are fifty righteous within the city; will You indeed destroy and not spare the place for the sake of the fifty righteous who are in it?: 25 Far be it from You to do such a thing, to put to death the righteous with the wicked, so that the righteous should be as the wicked. Far be it from You! Shall the Judge of all the earth not do justly? …33 And Jehovah went away as soon as He had finished speaking with Abraham, and Abraham returned to his place.
 
@@ -14,7 +14,7 @@ Rom. 1:9 For God is my witness, whom I serve **in my spirit** in the gospel of H
 
 Philem. 4 **I thank my God always, making mention of you in my prayers** .
 
-## Footnotes :
+## Footnotes
 
 Gen. 18:221 **Abraham's purpose in standing before Jehovah was to intercede for Lot** . **The glorious intercession that Abraham made before God was not a prayer from man on earth to God in heaven; it was a human conversation between two friends, an intimate talk according to the unveiling of God's heart's desire** .
 
@@ -28,7 +28,7 @@ Exo 30:71 Burning the incense typifies praying (Psa. 141:2; Luke 1:10-11; Rev. 8
 
 1Tim. 2:12 **(intercessions) The Greek word denotes an approaching of God in a personal and confiding manner, i.e., an intervening, an interfering, before God in others' affairs for their benefit** .
 
-## Ministry Excerpts :
+## Ministry Exceprts
 
 What was God's purpose in coming to Abraham in Genesis 18? He surely did not come for a meal; neither did He come to confirm His promise regarding Sarah's giving birth to a son. **God came to Abraham because He was seeking an intercessor.** On His throne in heaven, God had decided to execute His judgment on the wicked city of Sodom. But God would never forget that one of His people, Lot, was in that city. Lot did not even realize that he had to be rescued from Sodom. **What could God do? He had to find someone to intercede for Lot.** God knew that there was no one on earth who was as concerned for Lot and who was so much with God as Abraham was. Hence, **God came to Abraham for the purpose of finding an intercessor. Without an intercessor to intercede for His people, God cannot do anything. God has His divine principles. One of them is that without intercession He cannot save anyone. The salvation of every Christian has been accomplished through intercession.** God did not stay on His throne in heaven waiting for such intercession to occur. Rather, He came down to visit Abraham in the form of a mortal man so that Abraham might easily talk with Him and intercede for Lot. In Genesis 18 Abraham did not pray to God or call on the name of God; he talked to God as with an intimate friend. **Thus, the purpose of God's visit to Abraham in this chapter was that Abraham might take up the burden to intercede for Lot according to God's desire.** (_Abraham—Called by God,_ Chapter 15, Section 1)
 
@@ -40,7 +40,7 @@ What was God's purpose in coming to Abraham in Genesis 18? He surely did not com
 
 **If we want to learn the work of intercession, we must learn to turn to our spirit, enter into God, drop our concepts, and care for God's heart** . When we do this, spontaneously He will show us His desire, and He will motivate us to pray. The more we pray this way, the more we will touch God's heart. We will touch God and be filled, and something solid will remain in us. After we pray this way, we will have the faith and the deep assurance that our prayers have been answered. **Intercession is fully a matter of being in the spirit.** (_How to Enjoy God and How to Practice the Enjoyment of God_, Chapter 21)
 
-## Hymns :
+## Hymns
 
 _ **Hymn 785 (alternate tune)** _
 
