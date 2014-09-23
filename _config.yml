@@ -23,5 +23,5 @@ defaults:
       category-heading: Words that Describe Our Personal Fellowship with the Lord
 # Build settings
 markdown: redcarpet
-recarpet:
+redcarpet:
   extensions: ["smart", "superscript"]
