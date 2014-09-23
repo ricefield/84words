@@ -7,30 +7,36 @@ categories: first
 ## Scriptures:
 
 And Jehovah God caused a deep sleep to fall upon the man, and he slept; and He took one of his ribs and closed up the flesh in its place. And **Jehovah God built the rib, which He had taken from the man, into a woman and brought her to the man.**
----Gen. 2:21-22
+---_Gen. 2:21-22_
 
 Husbands, love your wives even as Christ also loved the church and gave Himself up for her **That He might sanctify her, cleansing her by the washing of the water in the word, 27 That He might present the church to Himself glorious, not having spot or wrinkle or any such things, but that she would be holy and without blemish** .
----Eph. 5:25-26
+---_Eph. 5:25-26_
 
 Seeing that **His divine power** has granted to us all things which relate to life and godliness, through the full knowledge of Him who has called us by His own glory and virtue, Through which He has granted to us precious and exceedingly **great promises that through these you might become partakers of the divine nature** , having escaped the corruption which is in the world by lust.
----2 Pet. 1:3-4
+---_2 Pet. 1:3-4_
 
 And **the Spirit and the bride say, Come!** And let him who hears say, Come! And let him who is thirsty come; let him who wills take the water of life freely.
----Rev. 22:17
+---_Rev. 22:17_
 
 ## Footnotes:
 
 In order to produce a complement for Himself, God first became a man (John 1:14), as typified by God's creation of Adam (Rom. 5:14). Here Adam's deep sleep for the producing of Eve as his wife typifies Christ's death on the cross for the producing of the church as His counterpart (Eph. 5:25-27). **Through Christ's death the divine life within Him was released, and through His resurrection His released divine life was imparted into His believers for the constituting of the church (see note 34^1 in John 19). Through such a process God in Christ has been wrought into man with His life and nature so that man can be the same as God in life and nature in order to match Him as His counterpart.**
----Gen 2:21, note 1 
+---_Gen 2:21, note 1_
+
+---
 
 **Christ's purpose in giving Himself up for the church is to sanctify her, not only separating her to Himself from everything common but also saturating her with His element that she may be His counterpart** . **He accomplishes this by cleansing her by the washing of the water in the word.**
----Eph 5:26, note 1 
+---_Eph 5:26, note 1_
+
+---
 
 The Greek word denotes an instant word. **The indwelling Christ as the life-giving Spirit is always speaking an instant, present, living word to metabolically cleanse away the old and replace it with the new, causing an inward transformation. The cleansing by the washing of the water of life is in the word of Christ. This indicates that in the word of Christ there is the water of life.** This is typified by the laver situated between the altar and the tabernacle (Exo. 38:8; 40:7).
----Eph 5:26, note 4 
+---_Eph 5:26, note 4_
+
+---
 
 **The entire revelation of the Bible shows us the love story of a universal couple** . That is, the sovereign Lord, who created the universe and all things, the Triune God—the Father, the Son, and the Spirit—who went through the processes of incarnation, human living, crucifixion, resurrection, and ascension, and who ultimately became the life-giving Spirit, is joined in marriage to the created, redeemed, regenerated, transformed, and glorified tripartite man—composed of spirit, soul, and body—who ultimately constitutes the church, the expression of God. **In the eternity that is without end, by the divine, eternal, and surpassingly glorious life, they will live a life that is the mingling of God and man as one spirit, a life that is superexcellent and that overflows with blessings and joy.**
----Rev 22:17, note 1, par. 2 
+---_Rev 22:17, note 1, par. 2_
 
 ## Ministry Excerpts:
 
@@ -39,7 +45,7 @@ The Greek word denotes an instant word. **The indwelling Christ as the life-givi
 **The enjoyment of the divine nature is both for the present and for eternity. For eternity we will continue to partake of the divine nature** . This is illustrated by the tree of life and the river of water of life in Revelation 22:1 and 2. The river of life flows out from the throne of God and of the Lamb. This signifies God flowing out to be the enjoyment of His redeemed ones. That flowing river will saturate the entire city of New Jerusalem. Furthermore, the tree of life that grows along the river will supply the redeemed ones with God as their life supply. **This is a picture of what it means to partake of the divine nature** . To eat the fruit of the tree of life is to partake of God's nature; **to be partakers of the divine nature is to be the eaters of the tree of life** . God's nature is holy, loving, righteous, kind, and pure. Actually, God's nature is all-inclusive. **The more we partake of the divine nature, the more we have holiness, love, righteousness, kindness, and all manner of divine attributes** . These attributes then become our virtues, which eventually will consummate in God's glory. We should praise the Lord that we human beings can have God's life, enjoy God's nature, live as God lives, express Him as our godliness, and have all the excellent virtues that will consummate in glory…. **Day after day we must partake of the divine nature, which is the glory. Eventually, this divine nature will glorify us, causing us to shine with God's element. We were made children of God and sons of God in order to be partakers of the divine nature so that we may be glorified with the divine glory (v. 4; Rom. 8:30; Heb. 2:10).**
 
 **It is a wonderful fact that as believers we possess the divine nature. The way to enlarge the sphere of the divine nature within us is to take the word of Christ not only by reading but also by praying, singing, psalming, and thanking the Lord (Col. 3:16)** . If the word of Christ is to dwell in us richly, we need to open our entire being and exercise our spirit. Then the word of Christ will enter into us, stir us up, and become mingled with us, causing us to be one with the Lord in an actual and practical way. As a result, the sphere of the divine nature in us will be enlarged.
----_Conclusion of the New Testament_, Message 389, pp. 3936-3937
+(_Conclusion of the New Testament_, Message 389, pp. 3936-3937)
 
 ## Hymns:
 
@@ -130,7 +136,6 @@ The Greek word denotes an instant word. **The indwelling Christ as the life-givi
     Till Thy life shall bring me
     To maturity.
 
-    
 6. I would cease completely
     From my efforts vain,
     Let Thy life transform me,

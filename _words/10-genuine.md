@@ -2,9 +2,10 @@
 layout: word
 title: Genuine
 categories: first
+subheading: "Sincere, Truthful"
 ---
 
-sincere, truthful
+
 
 ## Scriptures :
 
