@@ -14,7 +14,7 @@ html {
     -webkit-text-size-adjust: 100%;
     -ms-text-size-adjust: 100%}
 a:focus {
-    outline: thin dotted #333;
+    outline: thin dotted #C7E2C3;
     outline: 5px auto -webkit-focus-ring-color;
     outline-offset: -2px;
 }
@@ -84,11 +84,11 @@ body {
     background-color: #fff;
 }
 a {
-    color: #08c;
+    color: #8B9E88;
     text-decoration: none;
 }
 a:hover {
-    color: #005580;
+    color: #8B9E88;
     text-decoration: underline;
 }
 .img-rounded {
