@@ -6,8 +6,8 @@ categories: first
 
 ##Scriptures
 
-The king has **brought me into**** his chambers**
----_S.S. 1:4b_— / We will be glad and rejoice in you; / We will extol your love more than wine. / Rightly do they love you.
+The king has **brought me into his chambers** / We will be glad and rejoice in you; / We will extol your love more than wine. / Rightly do they love you.
+---_S.S. 1:4b_— 
 
 **The Lord be with your spirit** . Grace be with you.
 ---_2 Tim. 4:22_
