@@ -8,17 +8,23 @@ hold, embrace, cleave
 
 ##Scriptures
 
-Deut. 13:4 You shall follow Jehovah your God; and you shall fear Him, keep His commandments, listen to His voice, serve Him, and **hold fast to Him** .
+You shall follow Jehovah your God; and you shall fear Him, keep His commandments, listen to His voice, serve Him, and **hold fast to Him** .
+---_Deut. 13:4_
 
-Josh. 23:8 **But you shall cling to Jehovah** your God, as you have done to this day.
+**But you shall cling to Jehovah** your God, as you have done to this day.
+---_Josh. 23:8_
 
-Psa. 119:31 **I cling to Your testimonies** ; / O Jehovah, do not put me to shame.
+**I cling to Your testimonies** ; / O Jehovah, do not put me to shame.
+---_Psa. 119:31_
 
-S. S. 3:4 Scarcely had I passed them / When I found him whom my soul loves; / **I held him and would not let go** / Until I had brought him into my mother's house / And into the chamber of her who conceived me.
+Scarcely had I passed them / When I found him whom my soul loves; / **I held him and would not let go** / Until I had brought him into my mother's house / And into the chamber of her who conceived me.
+---_S.S. 3:4_
 
-Luke 8:15 But that which is in the good earth, these are those who in a noble and good heart **hear the word and hold it fast and bear fruit with endurance** .
+But that which is in the good earth, these are those who in a noble and good heart **hear the word and hold it fast and bear fruit with endurance** .
+---_Luke 8:15_
 
-Phil. 3:12 Not that I have already obtained or am already perfected, but I pursue, if even **I may lay hold of that for which I also have been laid hold of by Christ Jesus** .
+Not that I have already obtained or am already perfected, but I pursue, if even **I may lay hold of that for which I also have been laid hold of by Christ Jesus** .
+---_Phil. 3:12_
 
 ## Footnotes
 

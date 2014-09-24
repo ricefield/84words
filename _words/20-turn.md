@@ -9,23 +9,32 @@ Return
 
 ##Scriptures
 
-Psa. 51:13 I will teach transgressors Your ways, / And **sinners will turn back to You** .
+I will teach transgressors Your ways, / And **sinners will turn back to You** .
+---_Psa. 51:13_
 
-Isa. 45:22 **Turn to Me and be saved** , / All the ends of the earth, / For I am God and there is no one else.
+**Turn to Me and be saved** , / All the ends of the earth, / For I am God and there is no one else.
+---_Isa. 45:22_
 
-Jer. 24:7 And I will give them a heart to know Me, that I am Jehovah; and they will be My people, and I will be their God **; for they will return to Me with their whole heart.**
+And I will give them a heart to know Me, that I am Jehovah; and they will be My people, and I will be their God **; for they will return to Me with their whole heart.**
+---_Jer. 24:7_
 
-Joel 2:12 Yet even now, / Declares Jehovah, / **Turn to Me with all your heart** / And with fasting and weeping and mourning; 13 And rend your hearts, / And not your garments, / **And turn to Jehovah your God,** / For He is gracious and compassionate, / Long-suffering and abundant in lovingkindness / And repentant of evil.
+Yet even now, / Declares Jehovah, / **Turn to Me with all your heart** / And with fasting and weeping and mourning; 13 And rend your hearts, / And not your garments, / **And turn to Jehovah your God,** / For He is gracious and compassionate, / Long-suffering and abundant in lovingkindness / And repentant of evil.
+---_Joel 2:12_
 
-Zech. 1:3 Therefore say to them, Thus says Jehovah of hosts, **Return to Me, declares Jehovah of hosts, and I will return to you, says Jehovah of hosts** .
+Therefore say to them, Thus says Jehovah of hosts, **Return to Me, declares Jehovah of hosts, and I will return to you, says Jehovah of hosts** .
+---_Zech. 1:3_
 
-Matt. 3:2 And saying, **Repent, for the kingdom of the heavens has drawn near** . 3 For this is he who was spoken of through Isaiah the prophet, saying, "A voice of one crying in the wilderness, **Prepare the way of the Lord** ; make straight His paths."
+And saying, **Repent, for the kingdom of the heavens has drawn near** . 3 For this is he who was spoken of through Isaiah the prophet, saying, "A voice of one crying in the wilderness, **Prepare the way of the Lord** ; make straight His paths."
+---_Matt. 3:2_
 
-Acts 26:18 To open their eyes, **to turn them from darkness to light and from the authority of Satan to God** , that they may receive forgiveness of sins and an inheritance among those who have been sanctified by faith in Me. 20 But declared both to those in Damascus first and in Jerusalem and throughout all the country of Judea and to the Gentiles **that they should repent and turn to God, doing works worthy of repentance** .
+To open their eyes, **to turn them from darkness to light and from the authority of Satan to God** , that they may receive forgiveness of sins and an inheritance among those who have been sanctified by faith in Me. 20 But declared both to those in Damascus first and in Jerusalem and throughout all the country of Judea and to the Gentiles **that they should repent and turn to God, doing works worthy of repentance** .
+---_Acts 26:18_
 
-2 Cor. 3:16 But **whenever their heart turns to the Lord, the veil is taken away** .
+But **whenever their heart turns to the Lord, the veil is taken away** .
+---_2 Cor. 3:16_
 
-1 Thes. 1:9 For they themselves report concerning us what kind of entrance we had toward you and **how you turned to God from the idols to serve a living and true God.**
+For they themselves report concerning us what kind of entrance we had toward you and **how you turned to God from the idols to serve a living and true God.**
+---_1 Thes. 1:9_
 
 ## Footnotes
 

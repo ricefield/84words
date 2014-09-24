@@ -6,13 +6,17 @@ categories: beholding
 
 ##Scriptures
 
-Exo. 30:18 **You shall also make a laver of bronze, with its base of bronze, for washing** . And you shall put it between the Tent of Meeting and the altar, and **you shall put water in it** .
+**You shall also make a laver of bronze, with its base of bronze, for washing** . And you shall put it between the Tent of Meeting and the altar, and **you shall put water in it** .
+---_Exo. 30:18_
 
-1 Cor. 6:11 And these things were some of you; **but you were washed** , but you were sanctified, but you were justified **in the name of the Lord Jesus Christ and in the Spirit of our God.**
+And these things were some of you; **but you were washed** , but you were sanctified, but you were justified **in the name of the Lord Jesus Christ and in the Spirit of our God.**
+---_1 Cor. 6:11_
 
-Eph. 5:26 That He might **sanctify her, cleansing her by the washing of the water in the word** .
+That He might **sanctify her, cleansing her by the washing of the water in the word** .
+---_Eph. 5:26_
 
-Titus 3:5 Not out of works in righteousness which we did but according to His mercy He saved us, through **the washing of regeneration and the renewing of the Holy Spirit** .
+Not out of works in righteousness which we did but according to His mercy He saved us, through **the washing of regeneration and the renewing of the Holy Spirit** .
+---_Titus 3:5_
 
 ## Footnotes
 

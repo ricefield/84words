@@ -6,13 +6,17 @@ categories: first
 
 ##Scriptures
 
-S.S. 1:2 Let him kiss me with the kisses of his mouth! / For your love is better than wine.
+Let him kiss me with the kisses of his mouth! / For your love is better than wine.
+---_S.S. 1:2_
 
-Jer. 2:2 Go and cry in the ears of Jerusalem, saying, Thus says Jehovah: / I remember concerning you the kindness of your youth, / **The love of your bridal days, / When you followed after Me** in the wilderness, / In a land that was not sown.
+Go and cry in the ears of Jerusalem, saying, Thus says Jehovah: / I remember concerning you the kindness of your youth, / **The love of your bridal days, / When you followed after Me** in the wilderness, / In a land that was not sown.
+---_Jer. 2:2_
 
-Luke 7:38 And she stood behind Him at His feet weeping and began to wet His feet with her tears and wiped them with the hair of her head, and **she kissed His feet affectionately and anointed them with the ointment** . 45 You did not give Me a kiss, but **she, from the time I entered, has not stopped kissing My feet affectionately** .
+And she stood behind Him at His feet weeping and began to wet His feet with her tears and wiped them with the hair of her head, and **she kissed His feet affectionately and anointed them with the ointment** . 45 You did not give Me a kiss, but **she, from the time I entered, has not stopped kissing My feet affectionately** .
+---_Luke 7:38_
 
-Rom. 8:15 For you have not received a spirit of slavery bringing you into fear again, but you have received a spirit of sonship in which **we cry, Abba, Father** !
+For you have not received a spirit of slavery bringing you into fear again, but you have received a spirit of sonship in which **we cry, Abba, Father** 
+---_Rom. 8:15_!
 
 ## Footnotes
 

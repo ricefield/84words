@@ -6,27 +6,38 @@ categories: approaching
 
 ##Scriptures
 
-Exo. 34:2 And be ready by the morning, and **come up in the morning**** to Mount Sinai, and present yourself there to Me **, on the top of the mountain. 3 And** no one shall come up with you**, nor let anyone be seen anywhere on the mountain, nor let the flocks or herds graze in front of that mountain.
+And be ready by the morning, and **come up in the morning**** to Mount Sinai, and present yourself there to Me **, on the top of the mountain. 3 And** no one shall come up with you**, nor let anyone be seen anywhere on the mountain, nor let the flocks or herds graze in front of that mountain.
+---_Exo. 34:2_
 
-Psa. 95:2 **Let us come before His presence with thanksgiving** ; / Let us make a joyful noise to Him with psalms.
+**Let us come before His presence with thanksgiving** ; / Let us make a joyful noise to Him with psalms.
+---_Psa. 95:2_
 
-Isa. 55:1 **Ho! Everyone who thirsts, come to the waters,** / And you who have no money; / **Come, buy and eat;** / Yes, come, buy wine and milk / Without money and without price.
+**Ho! Everyone who thirsts, come to the waters,** / And you who have no money; / **Come, buy and eat;** / Yes, come, buy wine and milk / Without money and without price.
+---_Isa. 55:1_
 
-Matt. 11:28 **Come to Me all who toil and are burdened, and I will give you rest** .
+**Come to Me all who toil and are burdened, and I will give you rest** .
+---_Matt. 11:28_
 
-John 6:37 All that the Father gives Me will come to Me, and **him who comes to Me I shall by no means cast out** .
+All that the Father gives Me will come to Me, and **him who comes to Me I shall by no means cast out** .
+---_John 6:37_
 
-John 7:37 Now on the last day, the great day of the feast, Jesus stood and cried out, saying, **If anyone thirsts, let him come to Me and drink.**
+Now on the last day, the great day of the feast, Jesus stood and cried out, saying, **If anyone thirsts, let him come to Me and drink.**
+---_John 7:37_
 
-Heb. 4:16 **Let us therefore come forward with boldness to the throne of grace** that we may receive mercy and find grace for timely help.
+**Let us therefore come forward with boldness to the throne of grace** that we may receive mercy and find grace for timely help.
+---_Heb. 4:16_
 
-Heb. 7:25 Hence also He is **able to save to the uttermost those who come forward to God through Him** , since He lives always to intercede for them.
+Hence also He is **able to save to the uttermost those who come forward to God through Him** , since He lives always to intercede for them.
+---_Heb. 7:25_
 
-Heb. 10:22 **Let us come forward to the Holy of Holies**** with a true heart in full assurance of faith **,** having our hearts sprinkled from an evil conscience** and having our bodies washed with pure water.
+**Let us come forward to the Holy of Holies**** with a true heart in full assurance of faith **,** having our hearts sprinkled from an evil conscience** and having our bodies washed with pure water.
+---_Heb. 10:22_
 
-Heb. 11:6 But without faith it is impossible to be well pleasing to Him, for **he who comes forward to God must believe that He is** and that He is a rewarder of those who diligently seek Him.
+But without faith it is impossible to be well pleasing to Him, for **he who comes forward to God must believe that He is** and that He is a rewarder of those who diligently seek Him.
+---_Heb. 11:6_
 
-James 4:8a **Draw near to God** , and He will draw near to you.
+**Draw near to God** , and He will draw near to you.
+---_James 4:8a_
 
 ## Footnotes
 

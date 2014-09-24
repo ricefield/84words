@@ -6,15 +6,20 @@ categories: first
 
 ##Scriptures
 
-S. S. 1:2 **Let him kiss me with the kisses of his mouth** ! / For your love is better than wine.
+**Let him kiss me with the kisses of his mouth** ! / For your love is better than wine.
+---_S.S. 1:2_
 
-S. S. 1:4a **Draw me** ; we will run after you
+**Draw me** ; we will run after you
+---_S.S. 1:4a_
 
-James 2:23 And the Scripture was fulfilled which says, "And Abraham believed God, and it was accounted to him as righteousness"; and he was called **the friend of God** .
+And the Scripture was fulfilled which says, "And Abraham believed God, and it was accounted to him as righteousness"; and he was called **the friend of God** .
+---_James 2:23_
 
-Exo 33:11a And Jehovah would speak to Moses **face to face** , just as a man speaks to **his companion** .
+And Jehovah would speak to Moses **face to face** , just as a man speaks to **his companion** .
+---_Exo 33:11a_
 
-Psa. 27:8 When You say, Seek My face, / To You my heart says, **Your face, O Jehovah, will I seek** .
+When You say, Seek My face, / To You my heart says, **Your face, O Jehovah, will I seek** .
+---_Psa. 27:8_
 
 ## Footnotes
 

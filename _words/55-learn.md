@@ -6,13 +6,17 @@ categories: assimilating
 
 ##Scriptures
 
-Deut. 4:10 Especially do not forget the day when you stood before Jehovah your God at Horeb, when Jehovah said to me, **Gather the people to Me, and I will let them hear My words, so that they may learn to fear Me all the days that they live upon the earth** and may teach their children as much.
+Especially do not forget the day when you stood before Jehovah your God at Horeb, when Jehovah said to me, **Gather the people to Me, and I will let them hear My words, so that they may learn to fear Me all the days that they live upon the earth** and may teach their children as much.
+---_Deut. 4:10_
 
-Isa. 26:9 My soul desires You in the night; / Indeed my spirit within me seeks You at the dawn; / **For when Your judgments are in the earth, / The inhabitants of the world learn righteousness** .
+My soul desires You in the night; / Indeed my spirit within me seeks You at the dawn; / **For when Your judgments are in the earth, / The inhabitants of the world learn righteousness** .
+---_Isa. 26:9_
 
-Matt. 11:29 **Take My yoke upon you and learn from Me** , for I am meek and lowly in heart, and you will find rest for your souls.
+**Take My yoke upon you and learn from Me** , for I am meek and lowly in heart, and you will find rest for your souls.
+---_Matt. 11:29_
 
-Eph. 4:20 **But you did not so learn Christ, 21 If indeed you have heard Him and have been taught in Him as the reality is in Jesus.**
+**But you did not so learn Christ, 21 If indeed you have heard Him and have been taught in Him as the reality is in Jesus.**
+---_Eph. 4:20_
 
 ## Footnotes
 

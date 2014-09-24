@@ -8,17 +8,26 @@ Cease, silent
 
 ##Scriptures
 
-Psa. 4:4b Consider in your heart upon your bed, / **And be silent. Selah**
+Consider in your heart upon your bed, / **And be silent. Selah**
+---_Psa. 4:4b_
 
-Psa. 46:10 - **Be still and know that I am God** . "I will be exalted among the nations; I will be exalted on earth."
 
-Psa. 143:6 I spread out my hands to You; / My soul thirsts for You like a parched land. **Selah**
+**Be still and know that I am God** . "I will be exalted among the nations; I will be exalted on earth."
+---_Psa. 46:10_
 
-Isa. 40:31 **Yet those who wait on Jehovah will renew their strength** ; / They will mount up with wings like eagles; / They will run and will not faint; / They will walk and will not become weary.
+I spread out my hands to You; / My soul thirsts for You like a parched land. **Selah**
+---_Psa. 143:6_
 
-Hab. 2:20 - But Jehovah is in His holy temple: " **Be silent before Him** , all the earth!"
+**Yet those who wait on Jehovah will renew their strength** ; / They will mount up with wings like eagles; / They will run and will not faint; / They will walk and will not become weary.
+---_Isa. 40:31_
 
-Zech. 2:13 - **Hush, all flesh, before Jehovah** ! For He is roused up from His holy habitation.
+
+But Jehovah is in His holy temple: " **Be silent before Him** , all the earth!"
+---_Hab. 2:20_
+
+
+**Hush, all flesh, before Jehovah** ! For He is roused up from His holy habitation.
+---_Zech. 2:13_
 
 ## Footnotes
 

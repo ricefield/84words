@@ -6,15 +6,20 @@ categories: beholding
 
 ##Scriptures
 
-Psa. 27:14 **Wait for Jehovah; / Be strong, and let your heart be encouraged. / Yes, wait for Jehovah.**
+**Wait for Jehovah; / Be strong, and let your heart be encouraged. / Yes, wait for Jehovah.**
+---_Psa. 27:14_
 
-Psa. 62:1 **My soul waits in silence for God alone** ; / My salvation is from Him.
+**My soul waits in silence for God alone** ; / My salvation is from Him.
+---_Psa. 62:1_
 
-Psa. 130:5 **I wait for Jehovah; my soul waits, / And in His word I hope.**
+**I wait for Jehovah; my soul waits, / And in His word I hope.**
+---_Psa. 130:5_
 
-Isa. 30:18 And therefore Jehovah waits to be gracious to you, / And therefore He remains on high to have compassion on you; / For Jehovah is a God of justice; / **Blessed are those who wait for Him.**
+And therefore Jehovah waits to be gracious to you, / And therefore He remains on high to have compassion on you; / For Jehovah is a God of justice; / **Blessed are those who wait for Him.**
+---_Isa. 30:18_
 
-Isa. 40:31 **Yet those who wait on Jehovah will renew their strength** ; / They will mount up with wings like eagles; / They will run and will not faint; / They will walk and will not become weary.
+**Yet those who wait on Jehovah will renew their strength** ; / They will mount up with wings like eagles; / They will run and will not faint; / They will walk and will not become weary.
+---_Isa. 40:31_
 
 ## Footnotes
 

@@ -8,25 +8,35 @@ Sabbath
 
 ##Scriptures
 
-Gen. 2:2 And on the seventh day God finished His work which He had done, and **He rested on the seventh day from all His work which He had done** .
+And on the seventh day God finished His work which He had done, and **He rested on the seventh day from all His work which He had done** .
+---_Gen. 2:2_
 
-Gen. 49:11a **Binding his foal to the vine, / And his donkey's colt to the choice vine** .
+**Binding his foal to the vine, / And his donkey's colt to the choice vine** .
+---_Gen. 49:11a_ 
 
-Exo. 35:2a Six days shall work be done, **but on the seventh day you shall have a Sabbath of complete rest** …
+Six days shall work be done, **but on the seventh day you shall have a Sabbath of complete rest** 
+---_Exo. 35:2a_
 
-Jer. 6:16a Thus says Jehovah, / Stand by the ways and see, / And ask for the ancient paths; / Ask where the good way is, and walk in it; **/ And you will find rest for your souls** .
+Thus says Jehovah, / Stand by the ways and see, / And ask for the ancient paths; / Ask where the good way is, and walk in it; **/ And you will find rest for your souls** .
+---_Jer. 6:16a_ 
 
-Psa. 23:2 He makes me lie down in green pastures; / **He leads me beside waters of rest** .
+He makes me lie down in green pastures; / **He leads me beside waters of rest** .
+---_Psa. 23:2_
 
-S.S. 2:3b - **In his shade I delighted and sat down** , "And his fruit was sweet to my taste."
+**In his shade I delighted and sat down** , "And his fruit was sweet to my taste."
+---_S.S. 2:3b_- 
 
-S.S. 2:7 I adjure you, O daughters of Jerusalem, / By the gazelles or by the hinds of the fields, / **Not to rouse up or awaken my love / Until she pleases** .
+I adjure you, O daughters of Jerusalem, / By the gazelles or by the hinds of the fields, / **Not to rouse up or awaken my love / Until she pleases** .
+---_S.S. 2:7_
 
-Matt. 11:28 **Come to Me all who toil and are burdened, and I will give you rest** . 29 Take My yoke upon you and learn from Me, for I am meek and lowly in heart, and **you will find rest for your souls.**
+**Come to Me all who toil and are burdened, and I will give you rest** . 29 Take My yoke upon you and learn from Me, for I am meek and lowly in heart, and **you will find rest for your souls.**
+---_Matt. 11:28_
 
-2 Cor. 2:13a **I had no rest in my spirit** , for I did not find Titus my brother.
+**I had no rest in my spirit** , for I did not find Titus my brother.
+---_2 Cor. 2:13a_
 
-Heb. 4:3 **For we who have believed enter into the rest** , even as He has said, "As I swore in My wrath, They shall not enter into My rest!" although the works of creation were completed from the foundation of the world.
+**For we who have believed enter into the rest** , even as He has said, "As I swore in My wrath, They shall not enter into My rest!" although the works of creation were completed from the foundation of the world.
+---_Heb. 4:3_
 
 ## Footnotes
 

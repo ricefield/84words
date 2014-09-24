@@ -9,13 +9,17 @@ remain, stay
 
 ##Scriptures
 
-John 4:24 God is Spirit, and **those who worship Him must worship in spirit** and truthfulness.
+God is Spirit, and **those who worship Him must worship in spirit** and truthfulness.
+---_John 4:24_
 
-John 14:23 Jesus answered and said to him, **If anyone loves Me, he will keep My word, and My Father will love him, and We will come to him and make an abode with him** .
+Jesus answered and said to him, **If anyone loves Me, he will keep My word, and My Father will love him, and We will come to him and make an abode with him** .
+---_John 14:23_
 
-John 15:4 **Abide in Me** and I in you. As the branch cannot bear fruit of itself unless it abides in the vine, so neither can you unless you abide in Me. 5 I am the vine; you are the branches. **He who abides in Me and I in him, he bears much fruit** ; for apart from Me you can do nothing.
+**Abide in Me** and I in you. As the branch cannot bear fruit of itself unless it abides in the vine, so neither can you unless you abide in Me. 5 I am the vine; you are the branches. **He who abides in Me and I in him, he bears much fruit** ; for apart from Me you can do nothing.
+---_John 15:4_
 
-John 15:7 **If you abide in Me and My words abide in you,** ask whatever you will, and it shall be done for you.
+**If you abide in Me and My words abide in you,** ask whatever you will, and it shall be done for you.
+---_John 15:7_
 
 ## Footnotes
 

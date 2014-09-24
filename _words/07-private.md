@@ -6,17 +6,23 @@ categories: first
 
 ##Scriptures
 
-S. S. 1:4b The king has **brought me into his chambers** .
+The king has **brought me into his chambers** .
+---_S.S. 1:4b_
 
-S. S. 4:12 **A garden enclosed** is my sister, my bride, / **A spring shut up, a fountain sealed** .
+**A garden enclosed** is my sister, my bride, / **A spring shut up, a fountain sealed** .
+---_S.S. 4:12_
 
-Jer. 17:8 And he will be like a tree transplanted beside water, **/ Which sends out its roots by a stream** , / And will not be afraid when heat comes; / For its leaves remain flourishing, / And it will not be anxious in the year of drought / And will not cease to bear fruit.
+And he will be like a tree transplanted beside water, **/ Which sends out its roots by a stream** , / And will not be afraid when heat comes; / For its leaves remain flourishing, / And it will not be anxious in the year of drought / And will not cease to bear fruit.
+---_Jer. 17:8_
 
-Matt. 6:6 **But you, when you pray, enter into your private room, and shut your door and pray to your Father who is in secret** ; and your Father who sees in secret will repay you.
+**But you, when you pray, enter into your private room, and shut your door and pray to your Father who is in secret** ; and your Father who sees in secret will repay you.
+---_Matt. 6:6_
 
-Eph. 3:17 That Christ may make His home in your hearts through faith, that **you, being rooted and grounded in love,**
+That Christ may make His home in your hearts through faith, that **you, being rooted and grounded in love,**
+---_Eph. 3:17_
 
-Rev. 2:17 He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes **, to him I will give of the hidden manna** , and to him I will give a white stone, and upon the stone a new name written, which no one knows except him who receives it.
+He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes **, to him I will give of the hidden manna** , and to him I will give a white stone, and upon the stone a new name written, which no one knows except him who receives it.
+---_Rev. 2:17_
 
 ## Footnotes
 
