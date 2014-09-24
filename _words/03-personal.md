@@ -33,119 +33,115 @@ Because the seeker is full of hunger and thirst, her mouth spontaneously utters,
 
 ## Hymns
 
-_ **Hymn 1154** _
+###Hymn 1154
+<pre>
+1. I love Thee, Jesus,
+    And Thy love to me
+    Draws me, ever to seek Thee
+    And run after Thee,
+    Draws me, ever to seek Thee
+    And run after Thee.
+    Thou art beloved,
+    Yea! Altogether lovely,
+    The One in whom my heart delighteth.
 
-1.I love Thee, Jesus,
+2. Thy love, Lord Jesus,
+    Is sweeter than wine,
+    And Thy fragrance of ointments
+    My heart doth entwine,
+    And Thy fragrance of ointments
+    My heart doth entwine.
+    A fount in gardens,
+    A well of living waters,
+    Which streams and flows from Lebanon's mountains.
 
-And Thy love to me
+3. O come Beloved,
+    On my garden blow,
+    That the odor of spices
+    May break forth and flow,
+    That the odor of spices
+    May break forth and flow.
+    My spouse, My sister,
+    I'm come into My garden
+    To feast upon wine, milk and honey.
 
-Draws me, ever to seek Thee
+4. Set me, Lord Jesus,
+    As seal on Thine heart;
+    Jealousy's cruel as Sheol,
+    And love's strong as death,
+    Jealousy's cruel as Sheol,
+    And love's strong as death.
+    Much water cannot
+    Quench love, nor do floods drown it.
+    All man could give for love is contemned.
 
-And run after Thee,
+    (Repeat the last three lines of each stanza)
+</pre>
 
-Draws me, ever to seek Thee
+###The Divine Romance (How Could a Country Girl), v. 4
+<pre>
+4. Lord, in this close sweet fellowship,  
+    Lord, be with me so intimate,  
+    So personal and affectionate;  
+    A sweet relationship.
 
-And run after Thee.
+    Lord, daily change my inward being  
+    Lord, all my heart possessing  
+    In all my being—transforming  
+    To be Your bride and queen.
 
-Thou art beloved,
+        In Your love I'm drawn,  
+        To You I belong;  
+        I am not my own, Lord,  
+        I'm Yours alone.
 
-Yea! Altogether lovely,
+        By Your love I'm drawn,  
+        In Your name I'm charmed,  
+        And Your Person captured me,  
+        For I've been kissed by Thee.
+</pre>
 
-The One in whom my heart delighteth.
+###I'm so attracted by Your love
+<pre>
+1. I'm so attracted
+    by Your love,
+    And I'm drawn 
+    by You.
 
-2.Thy love, Lord Jesus,
+    In Your sweetness, 
+    to pursue, 
+    after You
+    For my full satisfaction.
 
-Is sweeter than wine,
+        I'm in love,
+        I'm in love, 
+        I'm in love with the most beautiful One.
 
-And Thy fragrance of ointments
+2. I'm captivated
+    by Your name
+    And I'm charmed 
+    by You;
 
-My heart doth entwine,
+    With Your fragrance 
+    covering me 
+    I was gained
+    As You kissed me with Your kisses.
 
-And Thy fragrance of ointments
+        I'm in love,
+        I'm in love,
+        I'm in love with the most affectionate One.
 
-My heart doth entwine.
+1. I'm fellowshipping 
+    in Your love
+    And rejoicing
+    in You.
 
-A fount in gardens,
+    In Your chambers 
+    I enjoy 
+    our sweet love
+    For the church, Your satisfaction.
 
-A well of living waters,
-
-Which streams and flows from Lebanon's mountains.
-
-3.O come Beloved,
-
-On my garden blow,
-
-That the odor of spices
-
-May break forth and flow,
-
-That the odor of spices
-
-May break forth and flow.
-
-My spouse, My sister,
-
-I'm come into My garden
-
-To feast upon wine, milk and honey.
-
-4.Set me, Lord Jesus,
-
-As seal on Thine heart;
-
-Jealousy's cruel as Sheol,
-
-And love's strong as death,
-
-Jealousy's cruel as Sheol,
-
-And love's strong as death.
-
-Much water cannot
-
-Quench love, nor do floods drown it.
-
-All man could give for love is contemned.
-
-(Repeat the last three lines of each stanza)
-
-_ **The Divine Romance (How Could a Country Girl), v. 4** _
-
-Lord, in this close sweet fellowship,  
-Lord, be with me so intimate,  
-So personal and affectionate;  
-A sweet relationship.
-
-Lord, daily change my inward being  
-Lord, all my heart possessing  
-In all my being—transforming  
-To be Your bride and queen.
-
-In Your love I'm drawn,  
-To You I belong;  
-I am not my own, Lord,  
-I'm Yours alone.
-
-By Your love I'm drawn,  
-In Your name I'm charmed,  
-And Your Person captured me,  
-For I've been kissed by Thee.
-
-_ **I'm so attracted by Your love** _
-
-1. I'm so attracted by Your love,And I'm drawn by YouIn Your sweetness, to pursue, after YouFor my full satisfaction.
-
-I'm in love, I'm in love, I'm in love  
-With the most beautiful One.
-
-1. I'm captivated by Your nameAnd I'm charmed by You;With Your fragrance covering me I was gainedAs You kissed me with Your kisses.
-
-I'm in love, I'm in love, I'm in love  
-With the most affectionate One.
-
-1. I'm fellowshipping in Your loveAnd rejoicing in You.In Your chambers I enjoy our sweet loveFor the church, Your satisfaction.
-
-I'm in love, I'm in love, I'm in love  
-With the most intimate One.
-
-3 - Personal
+        I'm in love,
+        I'm in love,
+        I'm in love with the most intimate One.
+</pre>

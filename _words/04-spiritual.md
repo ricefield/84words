@@ -43,63 +43,43 @@ The seeker in Song of Songs prayed, "Draw me; we will run after you." Then the k
 
 ## Hymns
 
-_ **Hymn 769, ss. 1-7** _
+###Hymn 769, ss. 1-7
+<pre>
+1. To the holiest place I'd come,
+    There within the veil to be;
+    There to touch the throne of grace,
+    Let life's water flow thru me.
 
-1To the holiest place I'd come,
+2. Now the holiest place of all
+    Right within my spirit is;
+    Here the Lord in me abides,
+    And my spirit joins with His.
 
-There within the veil to be;
+3. To my spirit I'd return,
+    For 'tis here the Lord I'll meet;
+    O how marvellous it is!
+    He's within, in me complete.
 
-There to touch the throne of grace,
+4. Fragrance of the risen Christ
+    Thru my spirit may be spread;
+    If in spirit I will pray
+    Christ will be exhibited.
 
-Let life's water flow thru me.
+5. If in spirit Him I touch,
+    With His riches filled I'll be;
+    Life and light and love and grace
+    As a stream will flow thru me.
 
-2Now the holiest place of all
+6. Touching deeply, richly I
+    Of Himself experience,
+    Thus the law of life I touch
+    And His clear anointing sense.
 
-Right within my spirit is;
-
-Here the Lord in me abides,
-
-And my spirit joins with His.
-
-3To my spirit I'd return,
-
-For 'tis here the Lord I'll meet;
-
-O how marvellous it is!
-
-He's within, in me complete.
-
-4Fragrance of the risen Christ
-
-Thru my spirit may be spread;
-
-If in spirit I will pray
-
-Christ will be exhibited.
-
-5If in spirit Him I touch,
-
-With His riches filled I'll be;
-
-Life and light and love and grace
-
-As a stream will flow thru me.
-
-6Touching deeply, richly I
-
-Of Himself experience,
-
-Thus the law of life I touch
-
-And His clear anointing sense.
-
-7In my spirit deeper still
-
-I would touch the Lord I love,
-
-Touch Him in His hidden depth
-
-And His hidden manna prove.
+7 In my spirit deeper still
+    I would touch the Lord I love,
+    Touch Him in His hidden depth
+    And His hidden manna prove.
+</pre>
 
 _ **Hymn 745** _
 
