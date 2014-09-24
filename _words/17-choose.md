@@ -8,17 +8,23 @@ decide
 
 ##Scriptures
 
-Deut. 30:19 I call heaven and earth to witness against you today: I have set before you life and death, blessing and curse; **therefore choose life that you and your seed may live** , 20 **In loving Jehovah your God by listening to His voice and holding fast to Him; for He is your life and the length of your days** , that you may dwell upon the land which Jehovah swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them.
+I call heaven and earth to witness against you today: I have set before you life and death, blessing and curse; **therefore choose life that you and your seed may live** , 20 **In loving Jehovah your God by listening to His voice and holding fast to Him; for He is your life and the length of your days** , that you may dwell upon the land which Jehovah swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them.
+---_Deut. 30:19_
 
-Josh. 24:15 And if it seems wrong in your sight to serve Jehovah, **choose for yourselves today whom you will serve** , either the gods from across the River, whom your fathers served, or the gods of the Amorites, in whose land you dwell. But as for me and my house, we will serve Jehovah.
+And if it seems wrong in your sight to serve Jehovah, **choose for yourselves today whom you will serve** , either the gods from across the River, whom your fathers served, or the gods of the Amorites, in whose land you dwell. But as for me and my house, we will serve Jehovah.
+---_Josh. 24:15_
 
-Ruth 1:16 But Ruth said, Do not entreat me to leave you and turn away from following after you. For wherever you go, I will go, and wherever you dwell, I will dwell; and your people will be my people, and **your God will be my God** .
+But Ruth said, Do not entreat me to leave you and turn away from following after you. For wherever you go, I will go, and wherever you dwell, I will dwell; and your people will be my people, and **your God will be my God** .
+---_Ruth 1:16_
 
-Psa. 84:10 For a day in Your courts is better than a thousand; **/ I would rather stand at the threshold of the house of my God** / Than dwell in the tents of the wicked.
+For a day in Your courts is better than a thousand; **/ I would rather stand at the threshold of the house of my God** / Than dwell in the tents of the wicked.
+---_Psa. 84:10_
 
-Psa. 119:173 Let Your hand be ready to help me, / **For I have chosen Your precepts** .
+Let Your hand be ready to help me, / **For I have chosen Your precepts** .
+---_Psa. 119:173_
 
-Isa. 7:15 He will eat curds and honey until he knows how to refuse evil and **choose good** .
+He will eat curds and honey until he knows how to refuse evil and **choose good** .
+---_Isa. 7:15_
 
 ## Footnotes
 

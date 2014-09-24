@@ -6,15 +6,20 @@ categories: first
 
 ##Scriptures
 
-S. S. 1:4b The king has **brought me into**** his chambers**— / We will be glad and rejoice in you; / We will extol your love more than wine. / Rightly do they love you.
+The king has **brought me into**** his chambers**
+---_S.S. 1:4b_— / We will be glad and rejoice in you; / We will extol your love more than wine. / Rightly do they love you.
 
-2 Tim. 4:22 **The Lord be with your spirit** . Grace be with you.
+**The Lord be with your spirit** . Grace be with you.
+---_2 Tim. 4:22_
 
-Heb. 10:19 Having therefore, brothers, **boldness for entering the Holy of Holies** in the blood of Jesus.
+Having therefore, brothers, **boldness for entering the Holy of Holies** in the blood of Jesus.
+---_Heb. 10:19_
 
-John 4:24 God is Spirit, and those who worship Him must **worship in spirit** and truthfulness.
+God is Spirit, and those who worship Him must **worship in spirit** and truthfulness.
+---_John 4:24_
 
-Eph. 6:18 By means of all prayer and petition, **praying at every time in spirit** and watching unto this in all perseverance and petition concerning all the saints
+By means of all prayer and petition, **praying at every time in spirit** and watching unto this in all perseverance and petition concerning all the saints
+---_Eph. 6:18_
 
 ## Footnotes
 

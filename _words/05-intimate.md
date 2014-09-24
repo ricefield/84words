@@ -6,13 +6,17 @@ categories: first
 
 ##Scriptures
 
-S. S. 1:2 Let him kiss me with **the kisses of his mouth** ! / For your love is better than wine.
+Let him kiss me with **the kisses of his mouth** ! / For your love is better than wine.
+---_S.S. 1:2_
 
-Exo. 33:11 And **Jehovah would**** speak to Moses face to face, just as a man speaks to his companion**. And Moses would return to the camp, but his attendant Joshua the son of Nun, a young man, would not depart out of the tent.
+And **Jehovah would**** speak to Moses face to face, just as a man speaks to his companion**. And Moses would return to the camp, but his attendant Joshua the son of Nun, a young man, would not depart out of the tent.
+---_Exo. 33:11_
 
-Num. 12:7 My servant Moses is not so; / He is faithful in all My house. 8a With him **I speak face to face** , even openly, and not in riddles; / And he beholds the form of Jehovah.
+My servant Moses is not so; / He is faithful in all My house. 8a With him **I speak face to face** , even openly, and not in riddles; / And he beholds the form of Jehovah.
+---_Num. 12:7_
 
-1 Cor. 2:9 But as it is written, "Things which eye has not seen and ear has not heard and which have not come up in man's heart; **things which God has prepared for those who love Him** ." 10 But to us God has revealed them through the Spirit, for the Spirit searches all things, even the depths of God.
+But as it is written, "Things which eye has not seen and ear has not heard and which have not come up in man's heart; **things which God has prepared for those who love Him** ." 10 But to us God has revealed them through the Spirit, for the Spirit searches all things, even the depths of God.
+---_1 Cor. 2:9_
 
 ## Footnotes
 

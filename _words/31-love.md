@@ -6,17 +6,23 @@ categories: beholding
 
 ##Scriptures
 
-Exo 20:6 Yet **showing lovingkindness to thousands of generations of those who love Me** and keep My commandments.
+Yet **showing lovingkindness to thousands of generations of those who love Me** and keep My commandments.
+---_Exo 20:6_
 
-Mark 12:30 And **you shall love the Lord your God from your whole heart and from your whole soul and from your whole mind and from your whole strength** ."
+And **you shall love the Lord your God from your whole heart and from your whole soul and from your whole mind and from your whole strength** ."
+---_Mark 12:30_
 
-John 14:23 Jesus answered and said to him, **If anyone loves Me, he will keep My word, and My Father will love him, and We will come to him and make an abode with him.**
+Jesus answered and said to him, **If anyone loves Me, he will keep My word, and My Father will love him, and We will come to him and make an abode with him.**
+---_John 14:23_
 
-1 Cor. 2:9 But as it is written, "Things which eye has not seen and ear has not heard and which have not come up in man's heart; **things which God has prepared for those who love Him** ."
+But as it is written, "Things which eye has not seen and ear has not heard and which have not come up in man's heart; **things which God has prepared for those who love Him** ."
+---_1 Cor. 2:9_
 
-Eph. 6:24 **Grace be with all those who love our Lord Jesus Christ in incorruptibility** .
+**Grace be with all those who love our Lord Jesus Christ in incorruptibility** .
+---_Eph. 6:24_
 
-1 John 4:19 **We love because He first loved us** .
+**We love because He first loved us** .
+---_1 John 4:19_
 
 ## Footnotes
 

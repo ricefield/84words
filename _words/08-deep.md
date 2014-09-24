@@ -6,13 +6,17 @@ categories: first
 
 ##Scriptures
 
-Psa. 42:7 **Deep calls unto deep** / At the sound of Your water spouts; / All Your waves and Your billows / Pass over me.
+**Deep calls unto deep** / At the sound of Your water spouts; / All Your waves and Your billows / Pass over me.
+---_Psa. 42:7_
 
-Dan. 2:22 **He reveals the deep things and the hidden things** ; / He knows what is obscured in the darkness, / And the light dwells with Him.
+**He reveals the deep things and the hidden things** ; / He knows what is obscured in the darkness, / And the light dwells with Him.
+---_Dan. 2:22_
 
-Luke 6:47 Everyone who comes to Me and hears My words and does them, I will show you whom he is like. 48 **He is like a man building a house, who dug and went deep and laid a foundation on the rock** . And when a flood came, the river broke out against that house, yet it was not strong enough to shake it, because it had been built well.
+Everyone who comes to Me and hears My words and does them, I will show you whom he is like. 48 **He is like a man building a house, who dug and went deep and laid a foundation on the rock** . And when a flood came, the river broke out against that house, yet it was not strong enough to shake it, because it had been built well.
+---_Luke 6:47_
 
-1 Cor. 2:9 But as it is written, "Things which eye has not seen and ear has not heard and which have not come up in man's heart; things which God has prepared for those who love Him." 10 But to us God has revealed them through the Spirit, **for the Spirit searches all things, even the depths of God** .
+But as it is written, "Things which eye has not seen and ear has not heard and which have not come up in man's heart; things which God has prepared for those who love Him." 10 But to us God has revealed them through the Spirit, **for the Spirit searches all things, even the depths of God** .
+---_1 Cor. 2:9_
 
 ## Footnotes
 

@@ -9,11 +9,14 @@ subheading: "Sincere, Truthful"
 
 ##Scriptures
 
-Josh. 24:14 Now therefore fear Jehovah, and **serve Him in sincerity and faithfulness** ; and put away the gods whom your fathers served across the River and in Egypt, and serve Jehovah.
+Now therefore fear Jehovah, and **serve Him in sincerity and faithfulness** ; and put away the gods whom your fathers served across the River and in Egypt, and serve Jehovah.
+---_Josh. 24:14_
 
-1 Sam. 12:24 **Only, fear Jehovah and serve Him in truth with all your heart** , for consider what great things He has done for you.
+**Only, fear Jehovah and serve Him in truth with all your heart** , for consider what great things He has done for you.
+---_1 Sam. 12:24_
 
-John 4:23 But an hour is coming, and it is now, when the **true worshippers will worship the Father in spirit and truthfulness** , for the Father also seeks such to worship Him. 24 God is Spirit, and **those who worship Him must worship in spirit and truthfulness** .
+But an hour is coming, and it is now, when the **true worshippers will worship the Father in spirit and truthfulness** , for the Father also seeks such to worship Him. 24 God is Spirit, and **those who worship Him must worship in spirit and truthfulness** .
+---_John 4:23_
 
 ## Footnotes
 

@@ -12,15 +12,20 @@ To look at, to behold, expressing the calm, intent, continuous contemplation of 
 
 ##Scriptures
 
-Psa. 27:4 One thing I have asked from Jehovah; / That do I seek: / To dwell in the house of Jehovah / All the days of my life, / **To behold the beauty of Jehovah,** / And to inquire in His temple.
+One thing I have asked from Jehovah; / That do I seek: / To dwell in the house of Jehovah / All the days of my life, / **To behold the beauty of Jehovah,** / And to inquire in His temple.
+---_Psa. 27:4_
 
-John 1:14 And the Word became flesh and tabernacled among us (and **we beheld His glory, glory as of the only Begotten from the Father** ), full of grace and reality.
+And the Word became flesh and tabernacled among us (and **we beheld His glory, glory as of the only Begotten from the Father** ), full of grace and reality.
+---_John 1:14_
 
-2 Cor. 3:18 **But we all with unveiled face, beholding and reflecting like a mirror the glory of the Lord** , are being transformed into the same image from glory to glory, even as from the Lord Spirit.
+**But we all with unveiled face, beholding and reflecting like a mirror the glory of the Lord** , are being transformed into the same image from glory to glory, even as from the Lord Spirit.
+---_2 Cor. 3:18_
 
-Heb. 12:2 **Looking away unto Jesus, the Author and Perfecter of our faith** , who for the joy set before Him endured the cross, despising the shame, and has sat down on the right hand of the throne of God.
+**Looking away unto Jesus, the Author and Perfecter of our faith** , who for the joy set before Him endured the cross, despising the shame, and has sat down on the right hand of the throne of God.
+---_Heb. 12:2_
 
-1 John 1:1 That which was from the beginning, which we have heard, **which we have seen with our eyes, which we beheld** and our hands handled, concerning the Word of life.
+That which was from the beginning, which we have heard, **which we have seen with our eyes, which we beheld** and our hands handled, concerning the Word of life.
+---_1 John 1:1_
 
 ## Footnotes
 

@@ -6,13 +6,17 @@ categories: approaching
 
 ##Scriptures
 
-S. S. 5:2 I sleep, but my heart is awake. / A sound! My beloved is knocking. / **Open to me, my sister, my love** , / My dove, my perfect one; / For my head is drenched with dew, / My locks with the drops of night. 5 **I rose up to open to my beloved;** / And my hands dripped with myrrh, / My fingers with liquid myrrh, / Upon the handles of the bolt.
+I sleep, but my heart is awake. / A sound! My beloved is knocking. / **Open to me, my sister, my love** , / My dove, my perfect one; / For my head is drenched with dew, / My locks with the drops of night. 5 **I rose up to open to my beloved;** / And my hands dripped with myrrh, / My fingers with liquid myrrh, / Upon the handles of the bolt.
+---_S.S. 5:2_
 
-Ezek. 2:8 But you, son of man, hear what I say to you; do not be rebellious like that rebellious house. **Open your mouth and eat what I give you** . 3:2 So **I opened my mouth, and He gave me that scroll to eat** .
+But you, son of man, hear what I say to you; do not be rebellious like that rebellious house. **Open your mouth and eat what I give you** . 3:2 So **I opened my mouth, and He gave me that scroll to eat** .
+---_Ezek. 2:8_
 
-Acts 16:14 And a certain woman named Lydia, a seller of purple-dyed goods from the city of Thyatira who worshipped God, was listening, **whose heart the Lord opened to give heed to the things being spoken by Paul** .
+And a certain woman named Lydia, a seller of purple-dyed goods from the city of Thyatira who worshipped God, was listening, **whose heart the Lord opened to give heed to the things being spoken by Paul** .
+---_Acts 16:14_
 
-Rev. 3:20 Behold, I stand at the door and knock; **if anyone hears My voice and opens the door, then I will come in to him** and dine with him and he with Me.
+Behold, I stand at the door and knock; **if anyone hears My voice and opens the door, then I will come in to him** and dine with him and he with Me.
+---_Rev. 3:20_
 
 ## Footnotes
 

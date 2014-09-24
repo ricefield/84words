@@ -8,17 +8,23 @@ contact, grasp, handle
 
 ##Scriptures
 
-Matt. 9:21 For she said within herself, **If only I touch His garment, I will be healed** .
+For she said within herself, **If only I touch His garment, I will be healed** .
+---_Matt. 9:21_
 
-Mark 5:30 And immediately Jesus, **realizing in Himself that power had gone out of Him** , turned around in the crowd and said, **Who touched My garments** ?
+And immediately Jesus, **realizing in Himself that power had gone out of Him** , turned around in the crowd and said, **Who touched My garments** ?
+---_Mark 5:30_
 
-Matt. 14:36 - And **they begged Him that they might only touch the fringe of His garment. And as many as touched were completely healed** .
+And **they begged Him that they might only touch the fringe of His garment. And as many as touched were completely healed** .
+---_Matt. 14:36_
 
-Luke 24:39 See My hands and My feet, that it is I Myself. **Touch Me and see** , for a spirit does not have flesh and bones as you behold Me having.
+See My hands and My feet, that it is I Myself. **Touch Me and see** , for a spirit does not have flesh and bones as you behold Me having.
+---_Luke 24:39_
 
-John 20:27 Then He said to Thomas, Bring your finger here and see My hands, and **bring your hand and put it into My side; and do not be unbelieving, but believing** .
+Then He said to Thomas, Bring your finger here and see My hands, and **bring your hand and put it into My side; and do not be unbelieving, but believing** .
+---_John 20:27_
 
-1 John 1:1 That which was from the beginning, which we have heard, which we have seen with our eyes, which we beheld and **our hands handled, concerning the Word of life**
+That which was from the beginning, which we have heard, which we have seen with our eyes, which we beheld and **our hands handled, concerning the Word of life**
+---_1 John 1:1_
 
 ## Footnotes
 

@@ -7,19 +7,26 @@ categories: approaching
 
 ##Scriptures
 
-Psa. 100:4 **Enter His gates with thanksgiving** , / His courts with praise; / Give thanks to Him; bless His name.
+**Enter His gates with thanksgiving** , / His courts with praise; / Give thanks to Him; bless His name.
+---_Psa. 100:4_
 
-Psa. 118:19 Open to me the gates of righteousness: **/ I will enter in through them; I will give thanks to Jehovah** .
+Open to me the gates of righteousness: **/ I will enter in through them; I will give thanks to Jehovah** .
+---_Psa. 118:19_
 
-Neh. 9:15 And You gave them bread from heaven / For their hunger, / And You made water come forth from a rock for them / For their thirst. / **And You told them to enter / In order to possess the land** , / Which You swore / To give them.
+And You gave them bread from heaven / For their hunger, / And You made water come forth from a rock for them / For their thirst. / **And You told them to enter / In order to possess the land** , / Which You swore / To give them.
+---_Neh. 9:15_
 
-Matt. 18:3 And said, Truly I say to you, **Unless you turn and become like little children, you shall by no means enter into the kingdom of the heavens.**
+And said, Truly I say to you, **Unless you turn and become like little children, you shall by no means enter into the kingdom of the heavens.**
+---_Matt. 18:3_
 
-John 10:9 - I am the door; **if anyone enters through Me, he shall be saved** and shall go in and go out and shall find pasture.
+I am the door; **if anyone enters through Me, he shall be saved** and shall go in and go out and shall find pasture.
+---_John 10:9_
 
-Heb. 10:19 **Having therefore, brothers, boldness for entering the Holy of Holies in the blood of Jesus** , 20 Which entrance He initiated for us as a new and living way through the veil, that is, His flesh,
+**Having therefore, brothers, boldness for entering the Holy of Holies in the blood of Jesus** , 20 Which entrance He initiated for us as a new and living way through the veil, that is, His flesh,
+---_Heb. 10:19_
 
-Rev. 22:14 **Blessed are those who wash their robes that they may have right to the tree of life and may enter by the gates into the city.**
+**Blessed are those who wash their robes that they may have right to the tree of life and may enter by the gates into the city.**
+---_Rev. 22:14_
 
 ## Footnotes
 

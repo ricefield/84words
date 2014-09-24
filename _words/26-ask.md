@@ -6,19 +6,26 @@ categories: approaching
 
 ##Scriptures
 
-Zech 10:1 - **Ask rain of Jehovah / At the time of spring rain** , / Of Jehovah who makes the lightning, / And He will give them showers of rain, / To everyone herbage in the field.
+ **Ask rain of Jehovah / At the time of spring rain** , / Of Jehovah who makes the lightning, / And He will give them showers of rain, / To everyone herbage in the field.
+---_Zech 10:1_
 
-Luke 11:9 And I say to you, **Ask and it shall be given to you** ; seek and you shall find; knock and it shall be opened to you. 10 **For everyone who asks receives** , and he who seeks finds, and to him who knocks it shall be opened. 11 But what father among you whose son shall **ask for a fish** will instead of a fish hand him a snake? 12 Or if he shall also **ask for an egg** will hand him a scorpion? 13 If you then being evil know how to give good gifts to your children, **how much more will the Father who is from heaven give the Holy Spirit to those who ask Him!**
+And I say to you, **Ask and it shall be given to you** ; seek and you shall find; knock and it shall be opened to you. **For everyone who asks receives** , and he who seeks finds, and to him who knocks it shall be opened. But what father among you whose son shall **ask for a fish** will instead of a fish hand him a snake? Or if he shall also **ask for an egg** will hand him a scorpion? If you then being evil know how to give good gifts to your children, **how much more will the Father who is from heaven give the Holy Spirit to those who ask Him!**
+---_Luke 11:9-13_
 
-John 4:10 Jesus answered and said to her, **If you knew the gift of God and who it is who says to you, Give Me a drink, you would have asked Him, and He would have given you living water** .
+Jesus answered and said to her, **If you knew the gift of God and who it is who says to you, Give Me a drink, you would have asked Him, and He would have given you living water** .
+---_John 4:10_
 
-John 14:13 And **whatever you ask in My name, that I will do, that the Father may be glorified in the Son.**
+And **whatever you ask in My name, that I will do, that the Father may be glorified in the Son.**
+---_John 14:13_
 
-John 15:7 **If you abide in Me and My words abide in you, ask whatever you will, and it shall be done for you** . 16 You did not choose Me, but I chose you, and I set you that **you should go forth and bear fruit and that your fruit should remain, that**** whatever you ask the Father in My name, He may give you**.
+**If you abide in Me and My words abide in you, ask whatever you will, and it shall be done for you** . 16 You did not choose Me, but I chose you, and I set you that **you should go forth and bear fruit and that your fruit should remain, that**** whatever you ask the Father in My name, He may give you**.
+---_John 15:7_
 
-John 16:23 And in that day you will ask Me nothing. Truly, truly, I say to you, **Whatever you ask the Father in My name, He will give to you.** 24 Until now you have asked for nothing in My name; **ask and you shall receive, that your joy may be made full.**
+And in that day you will ask Me nothing. Truly, truly, I say to you, **Whatever you ask the Father in My name, He will give to you.** 24 Until now you have asked for nothing in My name; **ask and you shall receive, that your joy may be made full.**
+---_John 16:23_
 
-1 John 5:14 And this is the boldness which we have toward Him, that **if we ask anything according to His will, He hears us** . 15 And if we know that He hears us in whatever we ask, we know that we have the requests which we have asked from Him.
+And this is the boldness which we have toward Him, that **if we ask anything according to His will, He hears us** . 15 And if we know that He hears us in whatever we ask, we know that we have the requests which we have asked from Him.
+---_1 John 5:14_
 
 ## Footnotes
 

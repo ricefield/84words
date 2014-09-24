@@ -6,19 +6,26 @@ categories: beholding
 
 ##Scriptures
 
-Deut. 5:15 And **you shall remember that you were a slave in the land of Egypt and that Jehovah your God brought you out from there with a mighty hand and an outstretched arm** ; hence, Jehovah your God commanded you to hold the Sabbath day.
+And **you shall remember that you were a slave in the land of Egypt and that Jehovah your God brought you out from there with a mighty hand and an outstretched arm** ; hence, Jehovah your God commanded you to hold the Sabbath day.
+---_Deut. 5:15_
 
-Psa. 63:6 **When I remember You while on my bed,** / When I consider You in the night watches.
+**When I remember You while on my bed,** / When I consider You in the night watches.
+---_Psa. 63:6_
 
-Psa. 77:11 **I will bring to remembrance the deeds of Jehovah** , / For I will remember Your wonders from of old.
+**I will bring to remembrance the deeds of Jehovah** , / For I will remember Your wonders from of old.
+---_Psa. 77:11_
 
-Psa. 119:55 **I have remembered Your name / In the night, O Jehovah** , / And have kept Your law.
+**I have remembered Your name / In the night, O Jehovah** , / And have kept Your law.
+---_Psa. 119:55_
 
-John 16:4 But **these things I have spoken to you that when their hour comes you may remember them** , that I told you of them. Now these things I have not said to you from the beginning, because I was with you.
+But **these things I have spoken to you that when their hour comes you may remember them** , that I told you of them. Now these things I have not said to you from the beginning, because I was with you.
+---_John 16:4_
 
-2 Pet. 1:15 Moreover I will also be diligent that you may be able, after my exodus, **to bring these things to mind at all times.**
+Moreover I will also be diligent that you may be able, after my exodus, **to bring these things to mind at all times.**
+---_2 Pet. 1:15_
 
-2 Pet. 3:2 **So that you would remember the words** spoken before by the holy prophets and the commandment of the Lord and Savior preached by your apostles.
+**So that you would remember the words** spoken before by the holy prophets and the commandment of the Lord and Savior preached by your apostles.
+---_2 Pet. 3:2_
 
 ## Ministry Excerpts :
 
