@@ -12,7 +12,12 @@ audio:not([controls]) {
 html {
     font-size: 100%;
     -webkit-text-size-adjust: 100%;
-    -ms-text-size-adjust: 100%}
+    -ms-text-size-adjust: 100%
+}
+p {
+    font-family: 'Libre Baskerville', serif;
+}
+
 a:focus {
     outline: thin dotted #C7E2C3;
     outline: 5px auto -webkit-focus-ring-color;
@@ -77,7 +82,7 @@ textarea {
 }
 body {
     margin: 0;
-    font-family: "Helvetica Neue", Helvetica, Arial, sans-serif;
+    font-family: 'Libre Baskerville', serif;
     font-size: 14px;
     line-height: 20px;
     color: #333;
@@ -98,7 +103,7 @@ a:hover {
 
 .word {
     color: #bbbbbb;
-    font-family: Georgia, serif;
+    font-family: 'Libre Baskerville', serif;
     font-size: 30px;
     line-height: 1.5em;   
 }
@@ -278,7 +283,7 @@ cite {
 }
 h1, h2, h3, h4, h5, h6 {
     margin: 20px 0;
-    font-family: Georgia, Serif;
+    font-family: 'Libre Baskerville', serif;
     font-weight: bold;
     line-height: 1;
     color: inherit;
@@ -446,7 +451,7 @@ code {
     border: 1px solid #e1e1e8;
 }
 pre {
-    font-family: Georgia, serif;
+    font-family: 'Libre Baskerville', serif;
     display: block;
     padding: 9.5px;
     margin: 0 0 10px;
@@ -1520,7 +1525,7 @@ main.container, main.content>.container {
     min-height: 58em;
 }
 .content h1 {
-    font-family: Georgia, "Times New Roman", Times, serif;
+    font-family: 'Libre Baskerville', serif;
     font-size: 6em;
     margin-top: 1em;
     border-bottom: 1px solid #222;
@@ -1546,7 +1551,7 @@ main.container, main.content>.container {
     letter-spacing: 0.1em;
 }
 .entries h3 {
-    font-family: Georgia, "Times New Roman", Times, serif;
+    font-family: 'Libre Baskerville', serif;
     font-size: 2em;
     margin-top: 0.2em;
 }
@@ -1565,7 +1570,7 @@ main.container, main.content>.container {
     float: left;
 }
 #post-pagination {
-    font-family: Georgia, "Times New Roman", Times, serif;
+    font-family: 'Libre Baskerville', serif;
     margin-bottom: 3em;
 }
 .home-icon {
@@ -1580,7 +1585,7 @@ main.container, main.content>.container {
     letter-spacing: 0.6em;
 }
 .post h2 {
-    font-family: Georgia, "Times New Roman", Times, serif;
+    font-family: 'Libre Baskerville', serif;
     font-size: 3em;
     padding: 1.5em 0 0.5em;
     letter-spacing: 0.05em;
