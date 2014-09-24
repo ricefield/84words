@@ -42,7 +42,7 @@ One thing is certain: if the Spirit is going to pray through you concerning an i
 
 To be blended by the Lord, **we also need to confess all our defects, shortcomings, wrongdoings, mistakes, transgressions, trespasses, outward sins, and inward evils. We need not only to confess these things but also to ask for the Lord's forgiveness.** The New Testament is full of the promise of the Lord's forgiveness (Acts 2:38; 10:43; Eph. 1:7; Col. 1:14; 1 John 1:9). **The Lord is willing to forgive and even to forget (Heb. 8:12), but we need to confess. We should make a thorough confession so that we can be forgiven and justified. Then we can be blended** . (_Fellowship Concerning the Urgent Need of the Vital Groups_, Chapter 10)
 
-**Hymns:**
+**Hymns**
 
 _ **Hymn 280, ss. 1-2 & chorus** _
 

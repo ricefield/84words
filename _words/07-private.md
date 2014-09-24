@@ -48,7 +48,7 @@ What is a root? In a tree, the part that can be seen is the trunk, while the par
 
 **The shutting of the door in Matthew is a kind of root life** . What did the Lord say in verse 6:6? He said that when we pray, we should enter into a private room, shut the door, and pray to the Father who is in secret, and the Father who sees in secret will repay us. The Lord is very particular; He said that the Father will _see_ us in secret. Prayer is something that can be seen. We have always thought that prayer is something that is heard; however, the Lord did not say that prayers are heard, but that prayers are seen. Many times when we have no words before the Lord, our attitude alone is precious enough, because God is seeing and not just hearing us. Brothers and sisters, how much of what we are can be seen before God? How much of our living can be seen by God? How many times are we only seen by the Lord and no one else? Or are we doing everything in front of men?…How much of our lives are spiritual before God and have never been told to men?...How many of our things are kept exclusively for God's enjoyment? If we do not have anything like this, I can honestly say that we do not have any roots. **If we do not have a hidden spiritual life and have not been dealt with by God or smitten by Him in a hidden way, everything will be superficial and of no account** . (_God's Overcomers Ch. 6, Section 2_)
 
-**Hymns:**
+**Hymns**
 
 _ **Hymn 784** _
 

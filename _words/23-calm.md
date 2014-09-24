@@ -49,7 +49,7 @@ After touching God in our spirit, we must learn the lesson of not opening our mo
 
 **A person who fellowships with God must learn to be quiet. Being quiet is not merely to be freed from the entanglements of outward matters but also to let go of all the things that should not be in our mind, our thoughts. In other words, we need to quiet our mind** . The mind is the most difficult part of a person's inner being to quiet. The young ones and the older ones have many thoughts in the morning when they rise. When a Christian desires to learn to fellowship with God, Satan will work very hard to inject many thoughts into his mind. Sometimes Satan injects thoughts to bother his mind and disturb his inner being. Therefore, **we must first learn the lesson of being quiet so that we can have good fellowship with God. Whenever we come before God, we should not immediately pray, read the Bible, or sing hymns. Rather, we need to settle our being both inwardly and outwardly** . However, we cannot be quiet for too long; otherwise, many scattered thoughts will begin to come in. This will not produce the desired result. Doing anything prior to our time of fellowship will be a distraction, and also being quiet for too long will not be profitable; we need to be balanced (_Lessons for New Believers_, Chapter 22).
 
-**Hymns:**
+**Hymns**
 
 _ **Hymn 281, s. 4** _
 

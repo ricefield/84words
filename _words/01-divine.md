@@ -4,7 +4,7 @@ title: Divine
 categories: first
 ---
 
-## Scriptures:
+## Scriptures
 
 And Jehovah God caused a deep sleep to fall upon the man, and he slept; and He took one of his ribs and closed up the flesh in its place. And **Jehovah God built the rib, which He had taken from the man, into a woman and brought her to the man.**
 ---_Gen. 2:21-22_
@@ -18,7 +18,7 @@ Seeing that **His divine power** has granted to us all things which relate to li
 And **the Spirit and the bride say, Come!** And let him who hears say, Come! And let him who is thirsty come; let him who wills take the water of life freely.
 ---_Rev. 22:17_
 
-## Footnotes:
+## Footnotes
 
 In order to produce a complement for Himself, God first became a man (John 1:14), as typified by God's creation of Adam (Rom. 5:14). Here Adam's deep sleep for the producing of Eve as his wife typifies Christ's death on the cross for the producing of the church as His counterpart (Eph. 5:25-27). **Through Christ's death the divine life within Him was released, and through His resurrection His released divine life was imparted into His believers for the constituting of the church (see note 34^1 in John 19). Through such a process God in Christ has been wrought into man with His life and nature so that man can be the same as God in life and nature in order to match Him as His counterpart.**
 ---_Gen 2:21, note 1_
@@ -38,7 +38,7 @@ The Greek word denotes an instant word. **The indwelling Christ as the life-givi
 **The entire revelation of the Bible shows us the love story of a universal couple** . That is, the sovereign Lord, who created the universe and all things, the Triune God—the Father, the Son, and the Spirit—who went through the processes of incarnation, human living, crucifixion, resurrection, and ascension, and who ultimately became the life-giving Spirit, is joined in marriage to the created, redeemed, regenerated, transformed, and glorified tripartite man—composed of spirit, soul, and body—who ultimately constitutes the church, the expression of God. **In the eternity that is without end, by the divine, eternal, and surpassingly glorious life, they will live a life that is the mingling of God and man as one spirit, a life that is superexcellent and that overflows with blessings and joy.**
 ---_Rev 22:17, note 1, par. 2_
 
-## Ministry Excerpts:
+## Ministry Excerpts
 
 **If we enjoy God and partake of the riches of His being, we will be constituted with the divine nature** , becoming the same as God in life and nature but not in the Godhead and expressing Him in all that we are and do. If we partake of God day by day, eventually we will partake of Him unconsciously. We all should be fully saturated with the nature of God. The more we are saturated with God, the more we will express Him. When others contact us, they will see in us the expression of the Triune God. **We may even give off a divine fragrance.**
 
@@ -47,7 +47,7 @@ The Greek word denotes an instant word. **The indwelling Christ as the life-givi
 **It is a wonderful fact that as believers we possess the divine nature. The way to enlarge the sphere of the divine nature within us is to take the word of Christ not only by reading but also by praying, singing, psalming, and thanking the Lord (Col. 3:16)** . If the word of Christ is to dwell in us richly, we need to open our entire being and exercise our spirit. Then the word of Christ will enter into us, stir us up, and become mingled with us, causing us to be one with the Lord in an actual and practical way. As a result, the sphere of the divine nature in us will be enlarged.
 (_Conclusion of the New Testament_, Message 389, pp. 3936-3937)
 
-## Hymns:
+## Hymns
 
 ### This Divine Romance, ss. 1, 3-4
 <pre>

@@ -30,7 +30,7 @@ Eph 5:26, note 3 (water) According to the divine concept, **water here refers to
 
 Eph 5:26, note 4 The Greek word denotes an instant word. **The indwelling Christ as the life-giving Spirit is always speaking an instant, present, living word to metabolically cleanse away the old and replace it with the new, causing an inward transformation. The cleansing by the washing of the water of life is in the word of Christ. This indicates that in the word of Christ there is the water of life. This is typified by the laver situated between the altar and the tabernacle (Exo. 38:8; 40:7** ).
 
-**Ministry Excerpts:**
+**Ministry Excerpts**
 
 In the morning many saints spend time with the Lord. However, even though they spend a certain amount of time with Him, they may not absorb much of His riches. **The reason is that they are in too much of a hurry. If we would absorb the riches of Christ into us as our nourishment, we should not be rushed. We cannot absorb anything if we are in a hurry** (_How to Enjoy God and How to Practice the Enjoyment of God_, Chapter 5).
 

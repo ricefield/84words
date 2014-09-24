@@ -41,7 +41,7 @@ If God wants to work in us but we do not cooperate with Him, He will use some wa
 
 Many times we may be perplexed and wonder why those who are pure in heart are often not prosperous, while those who do not love the Lord are often very prosperous. The answer to these questions is made clear when we enter into the sanctuary of God (v. 17). Other people gain only earthly joy and earthly peace, but **the pure in heart gain God Himself** . This is what a clean heart possesses. We have to bear in mind that the reason why God cannot work in us is that our inner being is not clean enough. **It is hard for God to work in us because our heart is not pure. Once our heart is not proper, our focus is also incorrect. This is why the Bible says that whenever our heart turns to the Lord, the veil is taken away (2 Cor. 3:16).** For this reason, it is hard to see God's work in many of God's children. All their problems hinge on whether their heart is on money, on their children, or on God. Judging others does not avail, neither does merely searching the Scriptures. Only turning our heart to God is profitable to us. Some people have half of their heart turned to God, while other people have their heart completely turned away from God. We have to bear in mind that how much our heart is for God determines how much work God will do in us. May we all be those who are pure in heart toward Him. (_Pure in Heart,_ Chap 1, sec 2, pp. 11-13)
 
-**Hymns:**
+**Hymns**
 
 _ **Hymn 1345** _
 

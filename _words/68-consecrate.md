@@ -4,7 +4,7 @@ title: Consecrate
 categories: dealing
 ---
 
-**Scriptures:**
+**Scriptures**
 
 Exo. 28:41 And you shall put them upon Aaron your brother and upon his sons with him, and **you shall anoint them and consecrate them and sanctify them, that they may serve Me as priests** .
 

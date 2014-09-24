@@ -43,7 +43,7 @@ Heb 12:2, note 2 The wonderful Jesus, who is enthroned in heaven and crowned wit
 
 1 John 1:1, note 4 **First, have heard, then have seen; after having seen, beheld, gazed at with a purpose, and handled, touched with hands…**
 
-**Ministry Excerpts:**
+**Ministry Excerpts**
 
 We should learn to behold the beauty of the Lord in silence (v. 4). Many Christians have never heard of this practice. **Beholding the beauty of the Lord is to look at the Lord in our spirit and to gaze at Him. When we come before God in prayer, we must learn to stop our speaking, to cut off our words, and to simply turn to our spirit to appear before Him, touch Him, behold Him in silence, and gaze upon Him. We need to look at Him again and again, beholding, appreciating, and even treasuring Him. This is very sweet and necessary** . We should never consider prayer to be merely asking God to do something for us. No, the object and subject of prayer are not things. Both the object and subject of prayer are God Himself. **First we should touch Him. Then we should be silent before Him. After this we should behold Him by looking and gazing at Him. This is to absorb God and enjoy Him** (_How to Enjoy God and How to Practice the Enjoyment of God_, Chapter 5).
 

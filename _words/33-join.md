@@ -58,7 +58,7 @@ In 6:17 Paul says, "He who is joined to the Lord is one spirit." **I wish to emp
 
 This was the way he read the Bible. **This was why he could be touched by every word, by the light, and by the teaching in the Bible.** After he read the book of Leviticus, he could no longer eat the unclean food. After he read the book of Jeremiah, he could not help but fast and pray for the restoration of God's people. **Whichever point he read, he joined himself to that point. Brothers and sisters, please remember that a person who turns the age for God must possess such a characteristic.** When we come to God's Word, we have to learn not to study for some scholarship or for some knowledge, but to find out God's desire from His Word. **Whenever we find out God's desire, we must immediately join ourselves to that desire….To read the Bible, one must join himself and his living to God's Word. Any time you find out God's desire from His Word, you must immediately join yourselves to this desire with fear and trembling. This is the second characteristic we find in Daniel. Every person whom God uses to turn the age must possess this characteristic. Only those who join themselves to God's Word can be of real use to God!** (_Men Who Turn the Age_, pp. 22-23)
 
-**Hymns:**
+**Hymns**
 
 _ **Hymn 474** _
 

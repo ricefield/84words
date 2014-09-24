@@ -34,7 +34,7 @@ S.S. 3:4, note 1 **After finding her Beloved, she holds Him and will not let go 
 
 Phil. 3:12, note 7 At his conversion Paul was grasped, taken possession of, by Christ in order **that he might grasp, take possession of, Christ. Christ gained him that he might gain Christ** (v. 8).
 
-**Ministry Excerpts:**
+**Ministry Excerpts**
 
 In verse 4 [Deuteronomy 13] Moses continued, "You shall follow Jehovah your God; and you shall fear Him, keep His commandments, listen to His voice, serve Him, **and hold fast to Him." Instead of using the expression "hold fast to Him," we today may speak of laying hold on Christ. We all need to lay hold of, to hold on to, Christ** (_Life-Study of Deuteronomy_, Chapter 12).
 

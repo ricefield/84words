@@ -6,7 +6,7 @@ categories: dealing
 
 **Dictionary definition** : to charge or **invest with a trust** or responsibility; **to commit** (something) in trust to; **to confide** , as for care, use, or performance.
 
-**Scriptures:** (No relevant verses on entrust, so we use the word commit)
+**Scriptures** (No relevant verses on entrust, so we use the word commit)
 
 Psa 22:8 **He committed himself to Jehovah** ; let Him rescue him; "Let Him deliver him since He takes pleasure in him."
 

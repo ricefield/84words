@@ -40,7 +40,7 @@ As soon as we understand the meaning of these feelings from God, we should follo
 
 **Hence, in genuine prayer we pray together with God; we pray by accompanying Him. We pray according to the feeling that God gives us. This enables God to pray with us in our prayer. We are praying, and He is also praying. He and we pray together. He is within us; He is praying one with us** . This is indeed an amazing matter. (_How to Enjoy God and How to Practice the Enjoyment of God,_ Chapter 20, pp. 221-223)
 
-**Hymns:**
+**Hymns**
 
 _ **Hymn 784** _
 

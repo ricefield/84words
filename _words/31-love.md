@@ -34,7 +34,7 @@ The entire Bible is a divine romance, a record of how God courts His chosen peop
 
 Eph 6:24, note 2 **The enjoyment of the Lord as grace is with those who love Him.** In this book the phrase in love, which is rich in feeling, is used repeatedly (1:4; 3:17; 4:2, 15-16; 5:2). Later, the church in Ephesus was rebuked by the Lord because she had lost her first love toward Him (Rev. 2:4). One of the main points revealed in this book is that the church, which is the Body of Christ, is also the bride of Christ, Christ's wife. With the Body, the emphasis is on taking Christ as life; with the wife, the emphasis is on loving Christ. Therefore, this book emphasizes and also concludes with our love toward the Lord. The church in Ephesus, the recipient of this Epistle, **failed in the matter of loving the Lord. Such a failure became the source of and main reason for the failure of the church throughout the ages** (Rev. 2—3).
 
-**Ministry Excerpts:**
+**Ministry Excerpts**
 
 Life is a Person, and there is no other way to apply and enjoy this Person but by love. **We need to love Him. Some of the saints in past centuries used to pray, "Lord, show me Your love that I may love You** ." We need to pray the same prayer. Once we see the love of Jesus, we will be so constrained, so captured, and so attracted. **We will spontaneously love Him. Then by loving Him, we will enjoy Him. This is life, and since this life is a Person, there is no other way for us to experience Him but by love. Only by loving Jesus can we enjoy Him.**
 

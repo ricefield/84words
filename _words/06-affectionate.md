@@ -34,7 +34,7 @@ John Nelson Darby, who lived to be eighty-four and never married, **had such a l
 
 The apostle John could lie on the Lord's bosom (John 13:23). How personal and affectionate that was! The very God, the very Lord whom we seek, sets up a feast and invites us to feast with Him (Rev. 3:20). **We must have such a personal and affectionate contact with Him.** If we mail someone a letter, that affects him in a certain way. **But if we come to him with a personal visitation and an affectionate contact, that makes a great difference** (_Crystallization-Study of Song of Songs_, Chapter 1).
 
-**Hymns:**
+**Hymns**
 
 _ **Hymn 169, s. 8** _
 

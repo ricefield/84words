@@ -40,7 +40,7 @@ Hosea 14:5-7 mentions Lebanon three times: (1) the lily in contrast to Lebanon, 
 
 If God removes our barriers and our outer man is dismantled, our spirit will be open to all men. Our spirit will be open to receive the spirits of all the brothers; it will touch and be touched by the spirits of all the brothers. We will touch the Body of Christ. We will be the Body of Christ; our spirits will be the Body of Christ. Psalm 42:7 says, **"Deep calls unto deep."**** The "deep" is indeed calling the "deep." The "deep" within us is calling and yearning to touch the "deep" within others, and our "deep" is calling and yearning to touch the whole church's "deep." This is the fellowship of deep with deep**. It is the calling and responding between deep and deep. If our outer man is broken and our inner man released, we will touch the spirit of the church, and we will be more useful to the Lord. (_The Breaking of the Outer Man and the Release of the Spirit_, Chapter 9, Section 6)
 
-**Hymns:**
+**Hymns**
 
 _ **Hymn 394, ss. 1-2** _
 

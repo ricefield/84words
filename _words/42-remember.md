@@ -51,7 +51,7 @@ And true remembrance have from us.
 
 **The more we eat, drink, and enjoy Him, the more we render Him the true remembrance** . To remember the Lord is not merely to recall that Christ is God who became a man, lived as a carpenter, and was persecuted, arrested, judged, and crucified. Rather, to remember Him is to eat and drink Him, to enjoy Him. In other words, we do not remember the Lord by using our mind to meditate about the Lord; instead, **we remember the Lord by exercising our spirit to feed on Him. Our remembering the Lord in such a way declares to the whole universe that we daily enjoy Him as our food and drink** . He is our feast, our enjoyment. (_The Conclusion of the New Testament_, Message 312, pp. 3169-3170)
 
-**Hymns:**
+**Hymns**
 
 _ **Hymn 86** _
 

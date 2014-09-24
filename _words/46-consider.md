@@ -43,7 +43,7 @@ In several verses the writer of Psalm 119 tells us that he mused upon God's word
 
 In [Psalm 119:] 95b the psalmist said, " **I consider Your testimonies." To consider the Word is to think it over very carefully. Concerning this, we may use the word mull. To consider the Word is to mull it over, even to study it and research it** . (_Life-Study of Psalms_, Message 40, p. 461)
 
-**Hymns:**
+**Hymns**
 
 _ **Hymn 190** _
 
