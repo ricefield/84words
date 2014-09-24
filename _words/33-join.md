@@ -9,15 +9,20 @@ united, attached, grafted
 
 ##Scriptures
 
-Deut. 4:4 **But you who joined yourselves to Jehovah your God are alive, all of you, today** .
+**But you who joined yourselves to Jehovah your God are alive, all of you, today** .
+---_Deut. 4:4_
 
-Rom. 6:5 **For if we have grown together with Him** in the likeness of His death, indeed we will also be in the likeness of His resurrection.
+**For if we have grown together with Him** in the likeness of His death, indeed we will also be in the likeness of His resurrection.
+---_Rom. 6:5_
 
-Rom. 11:17 But if some of the branches were broken off, and you, being a wild olive tree, **were grafted in among them and became a fellow partaker** of the root of fatness of the olive tree.
+But if some of the branches were broken off, and you, being a wild olive tree, **were grafted in among them and became a fellow partaker** of the root of fatness of the olive tree.
+---_Rom. 11:17_ 
 
-1 Cor. 6:17 But **he who is joined to the Lord is one spirit** .
+But **he who is joined to the Lord is one spirit** .
+---_1 Cor. 6:17_
 
-2 Cor. 1:21 But the One who **firmly attaches us with you unto Christ** and has anointed us is God.
+But the One who **firmly attaches us with you unto Christ** and has anointed us is God.
+---_2 Cor. 1:21_
 
 ## Footnotes
 

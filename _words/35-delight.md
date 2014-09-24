@@ -8,21 +8,29 @@ take great pleasure or enjoyment
 
 ##Scriptures
 
-Job 27:10 Does he **take delight in the Almighty** ? / Will he call upon God at all times?
+Does he **take delight in the Almighty** ? / Will he call upon God at all times?
+---_Job 27:10_ 
 
-Isa. 58:2 Yet they seek Me day by day / And **take delight in knowing My ways** , / Like a nation that has done righteousness / And has not forsaken the ordinance of their God. / They ask Me for righteous judgments; / **They take delight in approaching God.**
+Yet they seek Me day by day / And **take delight in knowing My ways** , / Like a nation that has done righteousness / And has not forsaken the ordinance of their God. / They ask Me for righteous judgments; / **They take delight in approaching God.**
+---_Isa. 58:2_
 
-Isa. 58:14 **Then you will have delight in Jehovah; / And I will cause you to ride upon the heights of the earth** , / And I will feed you with the inheritance of Jacob your father; / For the mouth of Jehovah has spoken.
+**Then you will have delight in Jehovah; / And I will cause you to ride upon the heights of the earth** , / And I will feed you with the inheritance of Jacob your father; / For the mouth of Jehovah has spoken.
+---_Isa. 58:14_
 
-Psa. 37:4 **Delight yourself in Jehovah** , / And He will give you the requests of your heart.
+**Delight yourself in Jehovah** , / And He will give you the requests of your heart.
+---_Psa. 37:4_
 
-Psa. 40:8 **I delight in doing Your will, O My God;** / Indeed Your law is within My inward parts.
+**I delight in doing Your will, O My God;** / Indeed Your law is within My inward parts.
+---_Psa. 40:8_
 
-Psa. 119:16 **I will take delight in Your statutes;** / I will not forget Your word.
+**I will take delight in Your statutes;** / I will not forget Your word.
+---_Psa. 119:16_
 
-Psa. 119:24 **Also Your testimonies are my delight** ; / They are my counselors.
+**Also Your testimonies are my delight** ; / They are my counselors.
+---_Psa. 119:24_
 
-S. S. 2:3 As the apple tree among the trees of the wood, / So is my beloved among the sons: **In his shade I delighted and sat down** , / And his fruit was sweet to my taste.
+As the apple tree among the trees of the wood, / So is my beloved among the sons: **In his shade I delighted and sat down** , / And his fruit was sweet to my taste.
+---_S.S. 2:3_
 
 ## Footnotes
 

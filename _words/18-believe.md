@@ -6,19 +6,27 @@ categories: approaching
 
 ## Scriptures
 
-John 14:1 Do not let your heart be troubled; **believe into God** , **believe also into Me** .
+Do not let your heart be troubled; **believe into God** , **believe also into Me** .
+---_John 14:1_
 
-Rom. 10:11 For the Scripture says, " **Everyone who believes on Him shall not be put to shame** ."
+For the Scripture says, 
+" **Everyone who believes on Him shall not be put to shame** ."
+---_Rom. 10:11_
 
-2 Cor. 4:13 And having the same spirit of faith according to that which is written, "I believed, therefore I spoke," **we also believe, therefore we also speak** .
+And having the same spirit of faith according to that which is written, "I believed, therefore I spoke," **we also believe, therefore we also speak** .
+---_2 Cor. 4:13_
 
-Gal. 3:9 So then **they who are of faith are blessed with believing Abraham** .
+So then **they who are of faith are blessed with believing Abraham** .
+---_Gal. 3:9_
 
-Eph. 1:19 And what is **the surpassing greatness of His power toward us who believe** , according to the operation of the might of His strength,
+And what is **the surpassing greatness of His power toward us who believe** , according to the operation of the might of His strength,
+---_Eph. 1:19_
 
-Heb. 11:6 But without faith it is impossible to be well pleasing to Him, for **he who comes forward to God must believe that He is and that He is a rewarder of those who diligently seek Him** .
+But without faith it is impossible to be well pleasing to Him, for **he who comes forward to God must believe that He is and that He is a rewarder of those who diligently seek Him** .
+---_Heb. 11:6_
 
-1 Pet. 2:7 **To you therefore who believe is the preciousness** ; but to the unbelieving, "The stone which the builders rejected, this has become the head of the corner,"
+**To you therefore who believe is the preciousness** ; but to the unbelieving, "The stone which the builders rejected, this has become the head of the corner,"
+---_1 Pet. 2:7_
 
 ## Footnotes
 

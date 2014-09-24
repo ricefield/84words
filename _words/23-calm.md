@@ -8,15 +8,20 @@ still, tranquil
 
 ##Scriptures
 
-Psa. 37:7 **Be still before Jehovah, and wait for Him** ; / Do not be incensed because of him who enjoys prosperity on his way, / Because of the man who performs his evil schemes.
+**Be still before Jehovah, and wait for Him** ; / Do not be incensed because of him who enjoys prosperity on his way, / Because of the man who performs his evil schemes.
+---_Psa. 37:7_
 
-Psa. 46:10 **Be still and know that I am God.** / I will be exalted among the nations; I will be exalted on earth.
+**Be still and know that I am God.** / I will be exalted among the nations; I will be exalted on earth.
+---_Psa. 46:10_
 
-Psa. 131:2 **Surely I have calmed / And quieted my soul** , / Like a weaned child with its mother; / Like a weaned child is my soul within me.
+**Surely I have calmed / And quieted my soul** , / Like a weaned child with its mother; / Like a weaned child is my soul within me.
+---_Psa. 131:2_
 
-Isa. 30:15a For thus says the Lord Jehovah, the Holy One of Israel, / **In returning and rest you will be saved;** / **In**** quietness and in trust will be your strength**.
+For thus says the Lord Jehovah, the Holy One of Israel, / **In returning and rest you will be saved;** / **In**** quietness and in trust will be your strength**.
+---_Isa. 30:15a_ 
 
-Luke 10:39 And she had a sister called **Mary, who also sat at the Lord's feet and was listening to His word** . 40 But Martha was being drawn about with much serving, and she came up to Him and said, Lord, does it not matter to You that my sister has left me to serve alone? Tell her then to do her part with me. 41 But the Lord answered and said to her, Martha, Martha, you are anxious and troubled about many things; 42 But there is need of one thing, for **Mary has chosen the good part, which shall not be taken away from her** .
+And she had a sister called **Mary, who also sat at the Lord's feet and was listening to His word** . 40 But Martha was being drawn about with much serving, and she came up to Him and said, Lord, does it not matter to You that my sister has left me to serve alone? Tell her then to do her part with me. 41 But the Lord answered and said to her, Martha, Martha, you are anxious and troubled about many things; 42 But there is need of one thing, for **Mary has chosen the good part, which shall not be taken away from her** .
+---_Luke 10:39_
 
 ## Footnotes
 

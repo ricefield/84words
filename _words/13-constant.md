@@ -8,15 +8,20 @@ continual
 
 ##Scriptures
 
-Psa. 16:8 **I have set Jehovah before me continually;** / Because He is at my right hand, I shall not be shaken.
+**I have set Jehovah before me continually;** / Because He is at my right hand, I shall not be shaken.
+---_Psa. 16:8_
 
-Psa. 34:1 I will bless Jehovah at all times; / **His praise will continually be in my mouth.**
+I will bless Jehovah at all times; / **His praise will continually be in my mouth.**
+---_Psa. 34:1_
 
-Phil. 1:19 For I know that for me this will **turn out to salvation** through your petition and the bountiful supply of the Spirit of Jesus Christ.
+For I know that for me this will **turn out to salvation** through your petition and the bountiful supply of the Spirit of Jesus Christ.
+---_Phil. 1:19_
 
-Phil. 2:12 So then, my beloved, even as you have **always obeyed** , not as in my presence only but now much rather in my absence, work out your own salvation with fear and trembling;
+So then, my beloved, even as you have **always obeyed** , not as in my presence only but now much rather in my absence, work out your own salvation with fear and trembling;
+---_Phil. 2:12_
 
-1 Thes. 5:16 **Always**** rejoice, 17 Unceasingly pray, 18 In everything give thanks**; for this is the will of God in Christ Jesus for you.
+**Always**** rejoice, Unceasingly pray, In everything give thanks**; for this is the will of God in Christ Jesus for you.
+---_1 Thes. 5:16-18_
 
 ## Footnotes
 

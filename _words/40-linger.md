@@ -8,7 +8,8 @@ remain
 
 ##Scriptures
 
-Gen. 18:16 And the men rose up from there and looked down upon Sodom. And **Abraham walked with them to send them away.** 17 And Jehovah said, Shall I hide from Abraham what I am about to do, 22 And the men turned from there and went toward Sodom, **while Abraham remained standing before Jehovah** . 33 **And Jehovah went away as soon as He had finished speaking with Abraham** , and Abraham returned to his place.
+And the men rose up from there and looked down upon Sodom. And **Abraham walked with them to send them away.** 17 And Jehovah said, Shall I hide from Abraham what I am about to do, 22 And the men turned from there and went toward Sodom, **while Abraham remained standing before Jehovah** . 33 **And Jehovah went away as soon as He had finished speaking with Abraham** , and Abraham returned to his place.
+---_Gen. 18:16_
 
 ## Footnotes
 

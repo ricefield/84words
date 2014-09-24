@@ -6,25 +6,11 @@ categories: approaching
 
 ##Scriptures
 
-Luke 11:9 And I say to you, Ask and it shall be given to you; seek and you shall find; **knock and it shall be opened to you** .
+And I say to you, Ask and it shall be given to you; seek and you shall find; **knock and it shall be opened to you** . For everyone who asks receives, and he who seeks finds, and **to him who knocks it shall be opened.**
+---_Luke 11:9-10_
 
-10 For everyone who asks receives, and he who seeks finds, and **to him who knocks it shall be opened.**
-
-Luke 18:1 And He told them a parable to the end that they ought always to pray and not lose heart,
-
-2 Saying, There was a certain judge in a certain city who did not fear God and did not regard man.
-
-3 **And there was a widow in that city, and she kept coming to him** , saying, Avenge me of my opponent.
-
-4 And for a time he would not; but afterward he said within himself, Even though I do not fear God nor regard man,
-
-5 **Yet because this widow causes me trouble, I will avenge her, lest by continually coming she wear me out** .
-
-6 And the Lord said, Hear what the unrighteous judge says.
-
-7 **And will not God by all means carry out the avenging of His chosen ones, who cry to Him day and night** , though He is long-suffering over them?
-
-8 I tell you that He will carry out their avenging quickly. Nevertheless, when the Son of Man comes, will He find faith on the earth?
+And He told them a parable to the end that they ought always to pray and not lose heart, saying, There was a certain judge in a certain city who did not fear God and did not regard man. **And there was a widow in that city, and she kept coming to him** , saying, Avenge me of my opponent. And for a time he would not; but afterward he said within himself, Even though I do not fear God nor regard man, **Yet because this widow causes me trouble, I will avenge her, lest by continually coming she wear me out** . And the Lord said, Hear what the unrighteous judge says. **And will not God by all means carry out the avenging of His chosen ones, who cry to Him day and night** , though He is long-suffering over them? I tell you that He will carry out their avenging quickly. Nevertheless, when the Son of Man comes, will He find faith on the earth?
+---_Luke 18:1-8_
 
 ## Footnotes
 

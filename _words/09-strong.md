@@ -6,17 +6,23 @@ categories: first
 
 ##Scriptures
 
-Neh. 8:10b And do not be grieved, **for the joy of Jehovah is your strength** . 12 And all the people went their way to eat and to drink and to send portions and to make **great rejoicing, because they had understood the words that were declared to them** .
+And do not be grieved, **for the joy of Jehovah is your strength** . 12 And all the people went their way to eat and to drink and to send portions and to make **great rejoicing, because they had understood the words that were declared to them** .
+---_Neh. 8:10b_ 
 
-Psa. 119:28 My soul melts because of grief; / **Strengthen me according to Your word** .
+My soul melts because of grief; / **Strengthen me according to Your word** .
+---_Psa. 119:28_
 
-1 John 2:14 I have written to you, fathers, because you know Him who is from the beginning. I have written to you, **young men, because you are strong and the word of God abides in you** and you have overcome the evil one.
+I have written to you, fathers, because you know Him who is from the beginning. I have written to you, **young men, because you are strong and the word of God abides in you** and you have overcome the evil one.
+---_1 John 2:14_
 
-Isa. 12:2 God is now my salvation; / I will trust and not dread; / **For Jah Jehovah is my strength and song** , / And He has become my salvation.
+God is now my salvation; / I will trust and not dread; / **For Jah Jehovah is my strength and song** , / And He has become my salvation.
+---_Isa. 12:2_
 
-Isa. 40:31 Yet **those who wait on Jehovah will renew their strength** ; / They will mount up with wings like eagles; / They will run and will not faint; / They will walk and will not become weary.
+Yet **those who wait on Jehovah will renew their strength** ; / They will mount up with wings like eagles; / They will run and will not faint; / They will walk and will not become weary.
+---_Isa. 40:31_
 
-Eph. 3:16 That He would grant you, according to the riches of His glory, to be **strengthened with power through His Spirit into the inner man** , 17 That Christ may make His home in your hearts through faith, that you, being rooted and grounded in love, 18 May be **full of strength to apprehend** with all the saints what the breadth and length and height and depth are.
+That He would grant you, according to the riches of His glory, to be **strengthened with power through His Spirit into the inner man** , 17 That Christ may make His home in your hearts through faith, that you, being rooted and grounded in love, 18 May be **full of strength to apprehend** with all the saints what the breadth and length and height and depth are.
+---_Eph. 3:16_
 
 ## Footnotes
 

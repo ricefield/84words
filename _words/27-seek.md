@@ -6,25 +6,35 @@ categories: approaching
 
 ##Scriptures
 
-1 Chron. 16:11 **Seek Jehovah and His strength; / Seek His face continually.**
+**Seek Jehovah and His strength; / Seek His face continually.**
+---_1 Chron. 16:11_
 
-Psa. 27:8 When **You say, Seek My face, / To You my heart says, Your face, O Jehovah, will I seek** .
+When **You say, Seek My face, / To You my heart says, Your face, O Jehovah, will I seek** .
+---_Psa. 27:8_
 
-Psa. 119:2 **Blessed are those** who keep His testimonies, / **Who seek Him with all their heart** .
+**Blessed are those** who keep His testimonies, / **Who seek Him with all their heart** .
+---_Psa. 119:2_
 
-Isa. 55:6 **Seek Jehovah while He may be found** ; / Call upon Him while He is near.
+**Seek Jehovah while He may be found** ; / Call upon Him while He is near.
+---_Isa. 55:6_
 
-Jer. 29:13 And **you will seek Me and find Me if you search for Me with all your heart** .
+And **you will seek Me and find Me if you search for Me with all your heart** .
+---_Jer. 29:13_
 
-Amos 5:4 For thus says Jehovah to the house of Israel, / **Seek Me, and live** .
+For thus says Jehovah to the house of Israel, / **Seek Me, and live** .
+---_Amos 5:4_
 
-Matt. 6:33 But **seek first His kingdom and His righteousness** , and all these things will be added to you.
+But **seek first His kingdom and His righteousness** , and all these things will be added to you.
+---_Matt. 6:33_
 
-Matt. 7:7 Ask and it shall be given to you; **seek and you shall find** ; knock and it shall be opened to you.
+Ask and it shall be given to you; **seek and you shall find** ; knock and it shall be opened to you.
+---_Matt. 7:7_
 
-Col. 3:1 If therefore you were raised together with Christ, **seek the things which are above, where Christ is** , sitting at the right hand of God.
+If therefore you were raised together with Christ, **seek the things which are above, where Christ is** , sitting at the right hand of God.
+---_Col. 3:1_
 
-Heb. 11:6 But without faith it is impossible to be well pleasing to Him, for he who comes forward to God must believe that He is and that **He is a rewarder of those who diligently seek Him** .
+But without faith it is impossible to be well pleasing to Him, for he who comes forward to God must believe that He is and that **He is a rewarder of those who diligently seek Him** .
+---_Heb. 11:6_
 
 ## Footnotes
 

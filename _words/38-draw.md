@@ -8,11 +8,14 @@ Draw near, Come Forward
 
 ##Scriptures
 
-James 4:8a **Draw near to God** , and He will draw near to you.
+**Draw near to God** , and He will draw near to you.
+---_James 4:8a_
 
-Heb. 10:19 Having therefore, brothers, **boldness for entering the Holy of Holies in the blood of Jesus.** 20 Which entrance He initiated for us as a new and living way through the veil, that is, His flesh.
+Having therefore, brothers, **boldness for entering the Holy of Holies in the blood of Jesus.** 20 Which entrance He initiated for us as a new and living way through the veil, that is, His flesh.
+---_Heb. 10:19_
 
-Heb. 10:22 **Let us come forward to the Holy of Holies** with a true heart in full assurance of faith, **having our hearts sprinkled from an evil conscience** and having our bodies washed with pure water.
+**Let us come forward to the Holy of Holies** with a true heart in full assurance of faith, **having our hearts sprinkled from an evil conscience** and having our bodies washed with pure water.
+---_Heb. 10:22_
 
 ## Ministry Excerpts :
 

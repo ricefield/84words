@@ -6,15 +6,20 @@ categories: first
 
 ##Scriptures
 
-Psa. 73:1 Surely God is good to Israel, / **To those who are pure in heart 25 Whom do I have in heaven but You? / And besides You there is nothing I desire on earth.**
+Surely God is good to Israel, / **To those who are pure in heart 25 Whom do I have in heaven but You? / And besides You there is nothing I desire on earth.**
+---_Psa. 73:1_
 
-Matt. 5:8 **Blessed are the pure in heart** , for they shall see God.
+**Blessed are the pure in heart** , for they shall see God.
+---_Matt. 5:8_
 
-2 Cor. 3:16 But **whenever their heart turns to the Lord, the veil is taken away** .
+But **whenever their heart turns to the Lord, the veil is taken away** .
+---_2 Cor. 3:16_
 
-2 Cor. 11:3 But I fear lest somehow, as the serpent deceived Eve by his craftiness, your thoughts would be corrupted from **the simplicity and the purity toward Christ** .
+But I fear lest somehow, as the serpent deceived Eve by his craftiness, your thoughts would be corrupted from **the simplicity and the purity toward Christ** .
+---_2 Cor. 11:3_
 
-2 Tim. 2:22 - But flee youthful lusts, and pursue righteousness, faith, love, peace with those who **call on the Lord out of a pure heart** .
+But flee youthful lusts, and pursue righteousness, faith, love, peace with those who **call on the Lord out of a pure heart** .
+---_2 Tim. 2:22_
 
 ## Footnotes
 

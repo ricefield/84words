@@ -8,17 +8,23 @@ new
 
 ##Scriptures
 
-Lev. 2:14 And if you present a meal offering of firstfruits to Jehovah, you shall present for the meal offering of your firstfruits new grain roasted with fire, **crushed grain of the fresh ear** .
+And if you present a meal offering of firstfruits to Jehovah, you shall present for the meal offering of your firstfruits new grain roasted with fire, **crushed grain of the fresh ear** .
+---_Lev. 2:14_
 
-S. S. 4:11 **Your lips drip fresh honey, my bride** ; / Honey and milk are under your tongue; / And the fragrance of your garments / Is like the fragrance of Lebanon.
+**Your lips drip fresh honey, my bride** ; / Honey and milk are under your tongue; / And the fragrance of your garments / Is like the fragrance of Lebanon.
+---_S.S. 4:11_
 
-Psa. 92:10 But You have exalted my horn like that of a wild ox; **/ I am anointed with fresh oil** .
+But You have exalted my horn like that of a wild ox; **/ I am anointed with fresh oil** .
+---_Psa. 92:10_
 
-Matt. 9:17 Neither do they put new wine into old wineskins; otherwise, the wineskins burst, and the wine pours out, and the wineskins are ruined; but **they put new wine into fresh wineskins** , and both are preserved.
+Neither do they put new wine into old wineskins; otherwise, the wineskins burst, and the wine pours out, and the wineskins are ruined; but **they put new wine into fresh wineskins** , and both are preserved.
+---_Matt. 9:17_
 
-2 Cor. 4:16 Therefore we do not lose heart; but though our outer man is decaying, yet **our inner man is being renewed day by day** .
+Therefore we do not lose heart; but though our outer man is decaying, yet **our inner man is being renewed day by day** .
+---_2 Cor. 4:16_
 
-2 Cor. 5:17 So then **if anyone is in Christ,**** he is a new creation**. The old things have passed away; behold, they have become new.
+So then **if anyone is in Christ,**** he is a new creation**. The old things have passed away; behold, they have become new.
+---_2 Cor. 5:17_
 
 ## Footnotes
 

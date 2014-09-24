@@ -8,15 +8,20 @@ memorial
 
 ##Scriptures
 
-Exo. 12:14 **And this day will be a memorial to you** , and you shall keep it as a feast to Jehovah; throughout your generations as a perpetual statute you shall keep it as a feast.
+**And this day will be a memorial to you** , and you shall keep it as a feast to Jehovah; throughout your generations as a perpetual statute you shall keep it as a feast.
+---_Exo. 12:14_
 
-Exo. 13:9 **And it shall be for a sign to you upon your hand and for a memorial between your eyes, that the law of Jehovah may be in your mouth** ; for with a mighty hand Jehovah brought you out of Egypt.
+**And it shall be for a sign to you upon your hand and for a memorial between your eyes, that the law of Jehovah may be in your mouth** ; for with a mighty hand Jehovah brought you out of Egypt.
+---_Exo. 13:9_
 
-Exo. 16:32 And Moses said, This is what Jehovah has commanded, Let an omerful of it be kept throughout your generations, that they may see the bread which I fed you in the wilderness, when I brought you out from the land of Egypt.
+And Moses said, This is what Jehovah has commanded, Let an omerful of it be kept throughout your generations, that they may see the bread which I fed you in the wilderness, when I brought you out from the land of Egypt.
+---_Exo. 16:32_
 
-Exo. 16:33 And Moses said to Aaron, Take a pot, and **put an omerful of manna in it, and place it before Jehovah, to be kept throughout your generations** .
+And Moses said to Aaron, Take a pot, and **put an omerful of manna in it, and place it before Jehovah, to be kept throughout your generations** .
+---_Exo. 16:33_
 
-Josh. 4:7 You shall tell them that the waters of the Jordan were cut off before the Ark of the Covenant of Jehovah; when it crossed over the Jordan, the waters of the Jordan were cut off. **Thus these stones will be for a memorial to the children of Israel forever.**
+You shall tell them that the waters of the Jordan were cut off before the Ark of the Covenant of Jehovah; when it crossed over the Jordan, the waters of the Jordan were cut off. **Thus these stones will be for a memorial to the children of Israel forever.**
+---_Josh. 4:7_
 
 ## Footnotes
 

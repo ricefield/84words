@@ -8,13 +8,17 @@ treasure, value, precious
 
 ##Scriptures
 
-S.S 1:13 **My beloved is to me a bundle of myrrh** / That lies at night between my breasts. 14 **My beloved is to me a cluster of henna flowers** / In the vineyards of En-gedi. 16a - **Oh, you are beautiful, my beloved; indeed, pleasant** !
+**My beloved is to me a bundle of myrrh** / That lies at night between my breasts. 14 **My beloved is to me a cluster of henna flowers** / In the vineyards of En-gedi. 16a - **Oh, you are beautiful, my beloved; indeed, pleasant** !
+---_S.S. 1:13_
 
-S. S. 2:3 **As the apple tree among the trees of the wood, / So is my beloved among the sons** : In his shade I delighted and sat down, / And his fruit was sweet to my taste.
+**As the apple tree among the trees of the wood, / So is my beloved among the sons** : In his shade I delighted and sat down, / And his fruit was sweet to my taste.
+---_S.S. 2:3_
 
-Luke 7:38 And **she stood behind Him at His feet weeping and began to wet His feet with her tears and wiped them with the hair of her head, and she kissed His feet affectionately and anointed them with the ointment** .
+And **she stood behind Him at His feet weeping and began to wet His feet with her tears and wiped them with the hair of her head, and she kissed His feet affectionately and anointed them with the ointment** .
+---_Luke 7:38_
 
-Phil. 3:7 But what things were gains to me, these I have counted as loss on account of Christ. 8 But **moreover I also count all things to be loss on account of the excellency of the knowledge of Christ Jesus my Lord** , on account of whom I have suffered the loss of all things and count them as refuse that I may gain Christ.
+But what things were gains to me, these I have counted as loss on account of Christ. 8 But **moreover I also count all things to be loss on account of the excellency of the knowledge of Christ Jesus my Lord** , on account of whom I have suffered the loss of all things and count them as refuse that I may gain Christ.
+---_Phil. 3:7_
 
 ## Footnotes
 
