@@ -2,9 +2,8 @@
 layout: word
 title: Constant
 categories: first
+subheading: continual
 ---
-
-continual
 
 ##Scriptures
 

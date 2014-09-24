@@ -2,9 +2,8 @@
 layout: word
 title: Fresh
 categories: first
+subheading: new
 ---
-
-new
 
 ##Scriptures
 
