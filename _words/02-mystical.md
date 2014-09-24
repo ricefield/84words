@@ -13,13 +13,13 @@ Even the Spirit of reality, whom the world cannot receive, because it does not b
 To whom God willed to make known what are **the riches of the glory of this mystery among the Gentiles, which is Christ in you,** the hope of glory,
 ---_Col. 1:27_
 
-That which we have seen and heard we report also to you that you also may have fellowship with us, and indeed **our fellowship is with the Father and with His Son Jesus Christ** .
+That which we have seen and heard we report also to you that you also may have fellowship with us, and indeed **our fellowship is with the Father and with His Son Jesus Christ**.
 ---_1 John 1:3_
 
 Behold what manner of love the Father has given to us, that we should be called children of God; and we are. Because of this **the world does not know us,** because it did not know Him.
 ---_1 John 3:1_
 
-And he who keeps His commandments **abides in Him** , and He in him. And in this we know that **He abides in us** , **by the Spirit** whom He gave to us.
+And he who keeps His commandments **abides in Him**, and He in him. And in this we know that **He abides in us**, **by the Spirit** whom He gave to us.
 ---_1 John 3:24_
 
 ## Footnotes
