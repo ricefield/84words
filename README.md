@@ -1,10 +1,2 @@
-HTML5 Muffin chocchip steps
+84 Precious Words
 ============================
-
-Run bundle install
-
-	bundle install
-
-Run jekyll
-
-	jekyll
