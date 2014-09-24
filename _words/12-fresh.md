@@ -2,7 +2,7 @@
 layout: word
 title: Fresh
 categories: first
-subheading: new
+subheading: New
 ---
 
 ##Scriptures
