@@ -43,7 +43,8 @@ The seeker in Song of Songs prayed, "Draw me; we will run after you." Then the k
 
 ## Hymns
 
-###Hymn 769, ss. 1-7
+### Hymn 769, ss. 1-7
+
 <pre>
 1. To the holiest place I'd come,
     There within the veil to be;
@@ -81,70 +82,47 @@ The seeker in Song of Songs prayed, "Draw me; we will run after you." Then the k
     And His hidden manna prove.
 </pre>
 
-_ **Hymn 745** _
+---
 
-1O Lord, Thou art the Spirit now
+### Hymn 745
+<pre>
+1. O Lord, Thou art the Spirit now
+    Who in our spirit lives;
+    One spirit have the two become,
+    Which oneness to us gives.
 
-Who in our spirit lives;
+2. Thy Spirit with our spirit, Lord,
+    The witness ever bears
+    That we the Father's children are
+    And of God's glory heirs.
 
-One spirit have the two become,
+3. 'Tis in our spirit Thee we touch
+    Thy riches to enjoy,
+    And as the Spirit Thou dost give
+    Thyself without alloy.
 
-Which oneness to us gives.
+4. 'Tis in our spirit we may walk
+    And follow Thee alway,
+    While, as the Spirit, Thou dost lead
+    And light impart each day.
 
-2Thy Spirit with our spirit, Lord,
+5. In spirit, by Thy Spirit, Lord,
+    We live and worship Thee;
+    Thou, in our spirit, thru Thine own
+    Strengtheneth constantly.
 
-The witness ever bears
+6. In spirit, with Thy Spirit, Lord,
+    We offer prayer to Thee,
+    While, as the Spirit, Thou in us
+    Groanest unutterably.
 
-That we the Father's children are
+7. We to our spirit would return
+    And there would contact Thine;
+    'Tis in the spirit we may share
+    Our heritage divine.
 
-And of God's glory heirs.
-
-3'Tis in our spirit Thee we touch
-
-Thy riches to enjoy,
-
-And as the Spirit Thou dost give
-
-Thyself without alloy.
-
-4'Tis in our spirit we may walk
-
-And follow Thee alway,
-
-While, as the Spirit, Thou dost lead
-
-And light impart each day.
-
-5In spirit, by Thy Spirit, Lord,
-
-We live and worship Thee;
-
-Thou, in our spirit, thru Thine own
-
-Strengtheneth constantly.
-
-6In spirit, with Thy Spirit, Lord,
-
-We offer prayer to Thee,
-
-While, as the Spirit, Thou in us
-
-Groanest unutterably.
-
-7We to our spirit would return
-
-And there would contact Thine;
-
-'Tis in the spirit we may share
-
-Our heritage divine.
-
-8What oneness, O my Lord, is this-
-
-Two spirits intertwine!
-
-Thy Spirit in our spirit lives,
-
-And ours abides in Thine!
-
-4 - Spiritual
+8. What oneness, O my Lord, is this-
+    Two spirits intertwine!
+    Thy Spirit in our spirit lives,
+    And ours abides in Thine!
+</pre>

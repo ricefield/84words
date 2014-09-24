@@ -33,7 +33,8 @@ Because the seeker is full of hunger and thirst, her mouth spontaneously utters,
 
 ## Hymns
 
-###Hymn 1154
+### Hymn 1154
+
 <pre>
 1. I love Thee, Jesus,
     And Thy love to me
@@ -78,7 +79,9 @@ Because the seeker is full of hunger and thirst, her mouth spontaneously utters,
     (Repeat the last three lines of each stanza)
 </pre>
 
-###The Divine Romance (How Could a Country Girl), v. 4
+---
+
+### The Divine Romance (How Could a Country Girl), v. 4
 <pre>
 4. Lord, in this close sweet fellowship,  
     Lord, be with me so intimate,  
@@ -101,7 +104,9 @@ Because the seeker is full of hunger and thirst, her mouth spontaneously utters,
         For I've been kissed by Thee.
 </pre>
 
-###I'm so attracted by Your love
+---
+
+### I'm so attracted by Your love
 <pre>
 1. I'm so attracted
     by Your love,

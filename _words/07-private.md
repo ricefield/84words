@@ -48,84 +48,58 @@ What is a root? In a tree, the part that can be seen is the trunk, while the par
 
 **The shutting of the door in Matthew is a kind of root life**. What did the Lord say in verse 6:6? He said that when we pray, we should enter into a private room, shut the door, and pray to the Father who is in secret, and the Father who sees in secret will repay us. The Lord is very particular; He said that the Father will _see_ us in secret. Prayer is something that can be seen. We have always thought that prayer is something that is heard; however, the Lord did not say that prayers are heard, but that prayers are seen. Many times when we have no words before the Lord, our attitude alone is precious enough, because God is seeing and not just hearing us. Brothers and sisters, how much of what we are can be seen before God? How much of our living can be seen by God? How many times are we only seen by the Lord and no one else? Or are we doing everything in front of men?…How much of our lives are spiritual before God and have never been told to men?...How many of our things are kept exclusively for God's enjoyment? If we do not have anything like this, I can honestly say that we do not have any roots. **If we do not have a hidden spiritual life and have not been dealt with by God or smitten by Him in a hidden way, everything will be superficial and of no account**. (_God's Overcomers Ch. 6, Section 2_)
 
-**Hymns:**
+## Hymns
 
-_ **Hymn 784** _
+### Hymn 784
 
-1Pray to fellowship with Jesus,
+<pre>
+1. Pray to fellowship with Jesus,
+    In the spirit seek His face;
+    Ask and listen in His presence,
+    Waiting in the secret place.
 
-In the spirit seek His face;
+        Pray to fellowship with Jesus,
+        In the spirit seek His face;
+        Ask and listen in His presence,
+        Waiting in the secret place.
 
-Ask and listen in His presence,
+2. Pray to fellowship with Jesus,
+    Fully opened from within,
+    With thy face unveiled, beholding,
+    Single, pure, and genuine.
 
-Waiting in the secret place.
+3. Pray to fellowship with Jesus,
+    Seeking Him in confidence;
+    Learn to touch Him as the Spirit,
+    Looking up in reverence.
 
-Chorus
+4. Pray to fellowship with Jesus,
+    Speaking nothing in pretense;
+    Ask according to the spirit,
+    Praying by the inner sense.
 
-Pray to fellowship with Jesus,
+5. Pray to fellowship with Jesus,
+    List'ning earnestly to Him;
+    Be impressed with His intentions,
+    Yielding to Him from within.
 
-In the spirit seek His face;
+6. Pray to fellowship with Jesus,
+    Bathing in His countenance;
+    Saturated with His beauty,
+    Radiate His excellence.
+</pre>
 
-Ask and listen in His presence,
+---
 
-Waiting in the secret place.
+### Hymn 643, s. 2
 
-2Pray to fellowship with Jesus,
-
-Fully opened from within,
-
-With thy face unveiled, beholding,
-
-Single, pure, and genuine.
-
-3Pray to fellowship with Jesus,
-
-Seeking Him in confidence;
-
-Learn to touch Him as the Spirit,
-
-Looking up in reverence.
-
-4Pray to fellowship with Jesus,
-
-Speaking nothing in pretense;
-
-Ask according to the spirit,
-
-Praying by the inner sense.
-
-5Pray to fellowship with Jesus,
-
-List'ning earnestly to Him;
-
-Be impressed with His intentions,
-
-Yielding to Him from within.
-
-6Pray to fellowship with Jesus,
-
-Bathing in His countenance;
-
-Saturated with His beauty,
-
-Radiate His excellence.
-
-_ **Hymn 643, s. 2** _
-
-Take time to behold Him,
-
-The world rushes on;
-
-Spend much time in secret
-
-With Jesus alone.
-
-By looking to Jesus
-
-Like Him thou shalt be;
-
-Thy friends, in thy conduct,
-
-His likeness shall see.
-
-7 - Private
+<pre>
+2. Take time to behold Him,
+    The world rushes on;
+    Spend much time in secret
+    With Jesus alone.
+    By looking to Jesus
+    Like Him thou shalt be;
+    Thy friends, in thy conduct,
+    His likeness shall see.
+</pre>

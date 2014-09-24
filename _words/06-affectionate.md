@@ -34,74 +34,65 @@ John Nelson Darby, who lived to be eighty-four and never married, **had such a l
 
 The apostle John could lie on the Lord's bosom (John 13:23). How personal and affectionate that was! The very God, the very Lord whom we seek, sets up a feast and invites us to feast with Him (Rev. 3:20). **We must have such a personal and affectionate contact with Him.** If we mail someone a letter, that affects him in a certain way. **But if we come to him with a personal visitation and an affectionate contact, that makes a great difference** (_Crystallization-Study of Song of Songs_, Chapter 1).
 
-**Hymns:**
+## Hymns
 
-_ **Hymn 169, s. 8** _
+### Hymn 169, s. 8
 
-As on Thyself we ponder
+<pre>
+8. As on Thyself we ponder
+    And all Thy beauty trace,
+    We taste to full Thy sweetness
+    And rest in Thine embrace.
 
-And all Thy beauty trace,
+        We treasure with affection
+        Thy perfect comeliness,
+        Thy sweetness and Thy fragrance,
+        And all Thy loveliness.
+</pre>
 
-We taste to full Thy sweetness
+---
 
-And rest in Thine embrace.
+### Hymn 556, ss. 1-3
 
-Chorus
+<pre>
+1. Thy name is sweet as ointment poured forth;
+    Better Thy love than wine, O draw Thou me!
+    If we the footsteps follow of the flock,
+    Entered Thy fellowship of love we'll be.
 
-We treasure with affection
+2. He's my Beloved, I am His own love;
+    He draweth me, pursue I after Him.
+    Fragrant as myrrh, I'd hide Him in my heart;
+    Beauteous as henna, I'd be clothed with Him;
 
-Thy perfect comeliness,
+3. Bathe in His love, and of His fatness taste,
+    Lie on His breast, His sweetness there enjoy;
+    His love the banner, His affection shown
+    Tenderly soothes my heart to purest joy.
+</pre>
 
-Thy sweetness and Thy fragrance,
+---
 
-And all Thy loveliness.
+### The Divine Romance, s. 4
 
-_ **Hymn 556, ss. 1-3** _
+<pre>
+4. Lord, in this close sweet fellowship,  
+    Lord, be with me so intimate,  
+    So personal and affectionate;  
+    A sweet relationship.
 
-1Thy name is sweet as ointment poured forth;
+    Lord, daily change my inward being  
+    Lord, all my heart possessing  
+    In all my being—transforming  
+    To be Your bride and queen.
 
-Better Thy love than wine, O draw Thou me!
+        In Your love I'm drawn,  
+        To You I belong;  
+        I am not my own, Lord,  
+        I'm Yours alone.
 
-If we the footsteps follow of the flock,
-
-Entered Thy fellowship of love we'll be.
-
-2He's my Beloved, I am His own love;
-
-He draweth me, pursue I after Him.
-
-Fragrant as myrrh, I'd hide Him in my heart;
-
-Beauteous as henna, I'd be clothed with Him;
-
-3Bathe in His love, and of His fatness taste,
-
-Lie on His breast, His sweetness there enjoy;
-
-His love the banner, His affection shown
-
-Tenderly soothes my heart to purest joy.
-
-_ **The Divine Romance, s. 4** _
-
-Lord, in this close sweet fellowship,  
-Lord, be with me so intimate,  
-So personal and affectionate;  
-A sweet relationship.
-
-Lord, daily change my inward being  
-Lord, all my heart possessing  
-In all my being—transforming  
-To be Your bride and queen.
-
-In Your love I'm drawn,  
-To You I belong;  
-I am not my own, Lord,  
-I'm Yours alone.
-
-By Your love I'm drawn,  
-In Your name I'm charmed,  
-And Your Person captured me,  
-For I've been kissed by Thee.
-
-6 - Affectionate
+        By Your love I'm drawn,  
+        In Your name I'm charmed,  
+        And Your Person captured me,  
+        For I've been kissed by Thee.
+</pre>

@@ -83,6 +83,8 @@ Let us now read all of [John 14:] 20: "In that day you will know that I am in My
     With Him in complete conformity.
 </pre>
 
+---
+
 ### Hymn 608 
 
 <pre>
@@ -116,6 +118,8 @@ Let us now read all of [John 14:] 20: "In that day you will know that I am in My
     Astounding fact, with God we are one spirit,
     And differ not in life in any way
 </pre>
+
+---
 
 ### Hymn 782, ss. 1-4
 

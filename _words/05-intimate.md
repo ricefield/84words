@@ -40,57 +40,77 @@ In the Father's presence we not only enjoy grace, the expression of love, but we
 
 ## Hymns
 
-_ **Just One Touch ss. 1-3** _
+### Just One Touch ss. 1-3
 
-Just one touch of You, dear Lord,  
-Just one look into Your eyes,   
-Just one kiss from You,  
-You're all I need, my Love.
+<pre>
+1. Just one touch of You, dear Lord,  
+    Just one look into Your eyes,   
+    Just one kiss from You,  
+    You're all I need, my Love.
 
-Let me hear again Your voice.  
-You are now my final choice.  
-Speak in love to me.  
-I'll waste myself on Thee.
+    Let me hear again Your voice.  
+    You are now my final choice.  
+    Speak in love to me.  
+    I'll waste myself on Thee.
 
-Nothing and no one can satisfy me   
-but You anymore.  
-Jesus, I love You, my only desire.  
-Oh Lord, I just love You.
+        Nothing and no one can satisfy me   
+        but You anymore.  
+        Jesus, I love You, my only desire.  
+        Oh Lord, I just love You.
 
-Let me touch You as before,  
-Craving for You more and more,  
-You're the very best!  
-I'll drop the rest for You.
+2. Let me touch You as before,  
+    Craving for You more and more,  
+    You're the very best!  
+    I'll drop the rest for You.
 
-Oh, the kisses of Your mouth  
-Make my lips to praise and shout.  
-Lord, You're full of grace  
-Oh, what a taste my Love!
+    Oh, the kisses of Your mouth  
+    Make my lips to praise and shout.  
+    Lord, You're full of grace  
+    Oh, what a taste my Love!
 
-Nothing and no one can satisfy me  
-but You anymore.  
-Jesus, my first Love, oh set me on fire  
-For You, my only desire.
+        Nothing and no one can satisfy me  
+        but You anymore.  
+        Jesus, my first Love, oh set me on fire  
+        For You, my only desire.
 
-Just infuse me with Your eyes.  
-Oh! This union satisfies!  
-As I gaze on You.  
-I'm filled with You, my Love.
+3. Just infuse me with Your eyes.  
+    Oh! This union satisfies!  
+    As I gaze on You.  
+    I'm filled with You, my Love.
 
-Only You alone will do.  
-I can't make it without You.  
-Keep me close to You,  
-Just joined to You as one.
+    Only You alone will do.  
+    I can't make it without You.  
+    Keep me close to You,  
+    Just joined to You as one.
 
-Nothing and no one can satisfy me  
-but You anymore.  
-Jesus, I love You, my only desire.  
-Oh, set my heart on fire.
+        Nothing and no one can satisfy me  
+        but You anymore.  
+        Jesus, I love You, my only desire.  
+        Oh, set my heart on fire.
+</pre>
 
-_ **Hymns, #1159, ss. 1, 4** _
+---
 
-1. Jesus Lord, I'm captured by Thy beauty,All my heart to Thee I open wide;Now set free from all religious duty,Only let me in Thyself abide.As I'm gazing here upon Thy glory,Fill my heart with radiancy divine;Saturate me, Lord, I now implore Thee,Mingle now Thy Spirit, Lord, with mine.
+### Hymns, #1159, ss. 1, 4
 
-1. My Beloved, come on spices' mountain;How I yearn to see Thee face to face.Drink, dear Lord, from my heart's flowing fountain,Till I rest fore'er in Thine embrace.Not alone, O Lord, do I adore Thee,But with all the saints as Thy dear Bride;Quickly come, our love is waiting for Thee;Jesus Lord, Thou wilt be satisfied.
+<pre>
+1. Jesus Lord, I'm captured by Thy beauty,
+    All my heart to Thee I open wide;
+    Now set free from all religious duty,
+    Only let me in Thyself abide.
 
-5 - Intimate
+    As I'm gazing here upon Thy glory,
+    Fill my heart with radiancy divine;
+    Saturate me, Lord, I now implore Thee,
+    Mingle now Thy Spirit, Lord, with mine.
+
+3. My Beloved, come on spices' mountain;
+    How I yearn to see Thee face to face.
+    Drink, dear Lord, from my heart's flowing fountain,
+    Till I rest fore'er in Thine embrace.
+
+    Not alone, O Lord, do I adore Thee,
+    But with all the saints as Thy dear Bride;
+    Quickly come, our love is waiting for Thee;
+    Jesus Lord, Thou wilt be satisfied.
+</pre>

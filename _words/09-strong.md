@@ -53,44 +53,58 @@ When we were saved, Christ came into our spirit. Now we must give Him the opport
 
 ## Hymns
 
-_ **Hymns 782, ss. 3, 4 and 7** _
+### Hymns 782, ss. 3, 4 and 7
 
-3Thru Thy Word and by my prayer
+<pre>
+3. Thru Thy Word and by my prayer
+    In the spirit touching Thee,
+    Lifted high my spirit is,
+    Strengthened shall my spirit be.
 
-In the spirit touching Thee,
+4. Make my spirit strong I pray
+    Others' spirits to revive;
+    Lift my spirit high and free,
+    Others' spirits then may thrive.
 
-Lifted high my spirit is,
+7. Lord, have mercy, from above
+    May Thy Spirit breathe on me;
+    Then my spirit will be rich,
+    Strengthened and refreshed by Thee.
+</pre>
 
-Strengthened shall my spirit be.
+---
 
-4Make my spirit strong I pray
+### Hymn 350, ss. 1, 2 and 4
 
-Others' spirits to revive;
+<pre>
+1. My goal is God Himself, not joy, nor peace,
+    Nor even blessing, but Himself, my God;
+    'Tis His to lead me there—not mine, but His—
+    At any cost, dear Lord, by any road.
 
-Lift my spirit high and free,
+2. So faith bounds forward to its goal in God,
+    And love can trust her Lord to lead her there;
+    Upheld by Him, my soul is following hard
+    Till God hath full fulfilled my deepest prayer.
 
-Others' spirits then may thrive.
+4. One thing I know, I cannot say Him nay;
+    One thing I do, I press towards my Lord;
+    My God my glory here, from day to day,
+    And in the glory there my great Reward.
+</pre>
 
-7Lord, have mercy, from above
+---
 
-May Thy Spirit breathe on me;
+### Hymn 662, ss. 2 and 4
 
-Then my spirit will be rich,
+<pre>
+1. "On toward the goal!" Press on!
+    The eyes that are a flame
+    Are watching thee, what then are men?
+    What matter praise, or blame?
 
-Strengthened and refreshed by Thee.
-
-_ **Hymn 350, ss. 1, 2 and 4** _
-
-1. My goal is God Himself, not joy, nor peace,Nor even blessing, but Himself, my God;'Tis His to lead me there—not mine, but His—At any cost, dear Lord, by any road.
-
-1. So faith bounds forward to its goal in God,And love can trust her Lord to lead her there;Upheld by Him, my soul is following hardTill God hath full fulfilled my deepest prayer.
-
-1. One thing I know, I cannot say Him nay;One thing I do, I press towards my Lord;My God my glory here, from day to day,And in the glory there my great Reward.
-
-_ **Hymn 662, ss. 2 and 4** _
-
-1. "On toward the goal!" Press on!The eyes that are a flameAre watching thee, what then are men?What matter praise, or blame?
-
-1. "On toward the goal!" Press on!Blind, deaf and sometimes dumbAlong the blood-marked, uphill way,Hard after Christ, press on!
-
-9 - Strong
+1. "On toward the goal!" Press on!
+    Blind, deaf and sometimes dumb
+    Along the blood-marked, uphill way,
+    Hard after Christ, press on!
+</pre>

@@ -40,93 +40,90 @@ Hosea 14:5-7 mentions Lebanon three times: (1) the lily in contrast to Lebanon, 
 
 If God removes our barriers and our outer man is dismantled, our spirit will be open to all men. Our spirit will be open to receive the spirits of all the brothers; it will touch and be touched by the spirits of all the brothers. We will touch the Body of Christ. We will be the Body of Christ; our spirits will be the Body of Christ. Psalm 42:7 says, **"Deep calls unto deep."** The "deep" is indeed calling the "deep." The "deep" within us is calling and yearning to touch the "deep" within others, and our "deep" is calling and yearning to touch the whole church's "deep." This is the fellowship of deep with deep**. It is the calling and responding between deep and deep. If our outer man is broken and our inner man released, we will touch the spirit of the church, and we will be more useful to the Lord. (_The Breaking of the Outer Man and the Release of the Spirit_, Chapter 9, Section 6)
 
-**Hymns:**
+## Hymns
 
-_ **Hymn 394, ss. 1-2** _
+### Hymn 394, ss. 1-2
 
-1Unto him that hath Thou givest  
-Ever more abundantly;  
-Lord, I live because Thou livest,  
-Therefore give more life to me,  
-Therefore speed me in the race,  
-Therefore let me grow in grace.
+<pre>
+1. Unto him that hath Thou givest  
+    Ever more abundantly;  
+    Lord, I live because Thou livest,  
+    Therefore give more life to me,  
+    Therefore speed me in the race,  
+    Therefore let me grow in grace.
 
-2Deepen all Thy work, O Master,  
-Strengthen every downward root;  
-Only do Thou ripen faster,  
-More and more Thy pleasant fruit;  
-Purge me, prune me, self abase;  
-Only let me grow in grace.
+2. Deepen all Thy work, O Master,  
+    Strengthen every downward root;  
+    Only do Thou ripen faster,  
+    More and more Thy pleasant fruit;  
+    Purge me, prune me, self abase;  
+    Only let me grow in grace.
+</pre>
 
-_ **Hymn 671** _
+---
 
-1Deep down into the depths of this Thy Name,  
-My God, I sink and dwell in calm delight;  
-Thou art enough however long the day,  
-Thou art enough however dark the night.
+### Hymn 671
 
-2Thou art my God—the All-Sufficient One,  
-Thou canst create for me whate'er I lack;  
-Thy mighty hand has strewn the lonely track  
-With miracles of love and tender care
+<pre>
+1. Deep down into the depths of this Thy Name,  
+    My God, I sink and dwell in calm delight;  
+    Thou art enough however long the day,  
+    Thou art enough however dark the night.
 
-1. For me Thy trusting one. My God I dareOnce more to fling myself upon Thy breast,And there adore Thy ways in faith's deep rest,And there adore Thy ways in faith's quiet rest.
+2. Thou art my God—the All-Sufficient One,  
+    Thou canst create for me whate'er I lack;  
+    Thy mighty hand has strewn the lonely track  
+    With miracles of love and tender care
 
-_ **Take Time to Absorb Him, s. 2** _
+3. For me Thy trusting one. My God I dare
+    Once more to fling myself upon Thy breast,
+    And there adore Thy ways in faith's deep rest,
+    And there adore Thy ways in faith's quiet rest.
+</pre>
 
-Take time to absorb Him, to gain the supply,  
-That we may be watered and nourished thereby;  
-The deeper the roots spread, the deeper the flow,  
-And richer and higher within us He'll grow.
+---
 
-_ **Hymn 1163** _
+### Take Time to Absorb Him, s. 2
 
-1He's the vine and we're the branches,
+<pre>
+2. Take time to absorb Him, to gain the supply,  
+    That we may be watered and nourished thereby;  
+    The deeper the roots spread, the deeper the flow,  
+    And richer and higher within us He'll grow.
+</pre>
 
-We should e'er abide in Him,
+---
 
-And let Him abide within us
+### Hymn 1163
 
-As the flow of life within.
+<pre>
+1. He's the vine and we're the branches,
+    We should e'er abide in Him,
+    And let Him abide within us
+    As the flow of life within.
 
-In the vine, in the vine,
+        In the vine, in the vine,
+        In the vine, in the vine,
+        We would know Thee, Lord, more deeply,
+        E'er abiding in the vine.
 
-In the vine, in the vine,
+2. As we hear His instant speaking,
+    He's the rich indwelling Word;
+    To abide we must be faithful
+    To the speaking that we've heard.
 
-We would know Thee, Lord, more deeply,
+3. For 'tis here we know abiding
+    In the real and deepest way;
+    If we love our Lord completely,
+    We would do whate'er He'd say.
 
-E'er abiding in the vine.
+4. Then His love abides within us,
+    And in love abiding, we
+    Know the joy of life-communion,
+    Full and perfect harmony.
 
-2As we hear His instant speaking,
-
-He's the rich indwelling Word;
-
-To abide we must be faithful
-
-To the speaking that we've heard.
-
-3For 'tis here we know abiding
-
-In the real and deepest way;
-
-If we love our Lord completely,
-
-We would do whate'er He'd say.
-
-4 Then His love abides within us,
-
-And in love abiding, we
-
-Know the joy of life-communion,
-
-Full and perfect harmony.
-
-5Oh, how precious this abiding,
-
-Oh, how intimate and sweet;
-
-As the fruit of life is added,
-
-And our joy is made complete
-
-8 - Deep
+5. Oh, how precious this abiding,
+    Oh, how intimate and sweet;
+    As the fruit of life is added,
+    And our joy is made complete
+</pre>
