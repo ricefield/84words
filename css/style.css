@@ -89,8 +89,25 @@ a {
 }
 a:hover {
     color: #778875;
-    text-decoration: underline;
+    text-decoration: none;
 }
+
+.disabled a {
+    pointer-events: none;
+}
+
+.word {
+    color: #bbbbbb;
+    font-family: Georgia, serif;
+    font-size: 30px;
+    line-height: 1.5em;   
+}
+
+.word a {
+    color: grey;
+    text-decoration: none;
+}
+
 .img-rounded {
     -webkit-border-radius: 6px;
     -moz-border-radius: 6px;
@@ -1626,19 +1643,4 @@ thead {
 tr {
     page-break-inside: avoid;
 }
-}
-
-
-.disabled a {
-    pointer-events: none;
-}
-
-.word {
-    font-family: Georgia, serif;
-    font-size: 24px;
-    line-height: 1.5em;   
-}
-
-.word a {
-    color: grey;
 }
