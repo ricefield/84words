@@ -1629,6 +1629,10 @@ tr {
 }
 
 
+.disabled a {
+    pointer-events: none;
+}
+
 .word {
     font-family: Georgia, serif;
     font-size: 24px;
