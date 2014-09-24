@@ -6,22 +6,22 @@ categories: first
 
 ##Scriptures
 
-And do not be grieved, **for the joy of Jehovah is your strength**. 
+And do not be grieved, **for the joy of Jehovah is your strength.**
 ---_Neh. 8:10b_ 
 
-And all the people went their way to eat and to drink and to send portions and to make **great rejoicing, because they had understood the words that were declared to them**.
+And all the people went their way to eat and to drink and to send portions and to make **great rejoicing, because they had understood the words that were declared to them.**
 ---_Neh. 8:12_
 
-My soul melts because of grief; / **Strengthen me according to Your word**.
+My soul melts because of grief; / **Strengthen me according to Your word.**
 ---_Psa. 119:28_
 
 I have written to you, fathers, because you know Him who is from the beginning. I have written to you, **young men, because you are strong and the word of God abides in you** and you have overcome the evil one.
 ---_1 John 2:14_
 
-God is now my salvation; / I will trust and not dread; / **For Jah Jehovah is my strength and song**, / And He has become my salvation.
+God is now my salvation; / I will trust and not dread; / **For Jah Jehovah is my strength and song,** / And He has become my salvation.
 ---_Isa. 12:2_
 
-Yet **those who wait on Jehovah will renew their strength**; / They will mount up with wings like eagles; / They will run and will not faint; / They will walk and will not become weary.
+Yet **those who wait on Jehovah will renew their strength;** / They will mount up with wings like eagles; / They will run and will not faint; / They will walk and will not become weary.
 ---_Isa. 40:31_
 
 That He would grant you, according to the riches of His glory, to be **strengthened with power through His Spirit into the inner man**, 17 That Christ may make His home in your hearts through faith, that you, being rooted and grounded in love, 18 May be **full of strength to apprehend** with all the saints what the breadth and length and height and depth are.
@@ -29,23 +29,33 @@ That He would grant you, according to the riches of His glory, to be **strengthe
 
 ## Footnotes
 
-Isa 12:2, note 3: Strength and song both indicate experience. **When God's salvation is experienced by us, it becomes our strength**, and eventually it will be our song, our praising.
+Strength and song both indicate experience. **When God's salvation is experienced by us, it becomes our strength,** and eventually it will be our song, our praising.
+---_Isa 12:2, note 3_
 
-Isa 40:31 note 1, par. 1: To wait on the eternal God (v. 28) means that we terminate ourselves, i.e., that we stop ourselves with our living, our doing, and our activity, and receive God in Christ as our life, our person, and our replacement. **Such a waiting one will be renewed and strengthened to such an extent that he will mount up with wings like eagles**. He will not only walk and run but also soar in the heavens, far above every earthly frustration. This is a transformed person. This chapter leads us to a comparison between Hezekiah, a godly man who was still in the old creation (chs. 36—39), and a regenerated and transformed person in the new creation.
+To wait on the eternal God (v. 28) means that we terminate ourselves, i.e., that we stop ourselves with our living, our doing, and our activity, and receive God in Christ as our life, our person, and our replacement. **Such a waiting one will be renewed and strengthened to such an extent that he will mount up with wings like eagles.** He will not only walk and run but also soar in the heavens, far above every earthly frustration. This is a transformed person. This chapter leads us to a comparison between Hezekiah, a godly man who was still in the old creation (chs. 36—39), and a regenerated and transformed person in the new creation.
+---_Isa 40:31 note 1, par. 1_
 
-Num 18:10, note 1: Signifying those who are spiritually stronger (cf. 1 Pet. 3:7). **The enjoyment of Christ makes us stronger, and this affords us the capacity to enjoy Christ in a stronger way** (cf. Eph. 3:16-18).
+Signifying those who are spiritually stronger (cf. 1 Pet. 3:7). **The enjoyment of Christ makes us stronger, and this affords us the capacity to enjoy Christ in a stronger way** (cf. Eph. 3:16-18).
+---_Num 18:10, note 1_
 
-Eph 3:16, note 3: The apostle's prayer in 1:15-23 was that the saints would receive revelation concerning the church. Here in vv. 14-21 **his prayer is that the saints would experience Christ for the church. This requires us to be strengthened into our spirit**.
+The apostle's prayer in 1:15-23 was that the saints would receive revelation concerning the church. Here in vv. 14-21 **his prayer is that the saints would experience Christ for the church. This requires us to be strengthened into our spirit.**
+---_Eph 3:16, note 3_
 
-Eph 3:16, note 5: **The Father strengthens us from within through the indwelling Spirit**, who has been with us and in us since our regeneration.
+**The Father strengthens us from within through the indwelling Spirit,** who has been with us and in us since our regeneration.
+---_Eph 3:16, note 5_
 
-Eph 3:16, note 6: The inner man is our regenerated spirit, which has God's life as its life **. In order that we may experience Christ unto all the fullness of God, we need to be strengthened into our inner man. This implies that we need to be strengthened into our spirit through the Holy Spirit**.
+The inner man is our regenerated spirit, which has God's life as its life **. In order that we may experience Christ unto all the fullness of God, we need to be strengthened into our inner man. This implies that we need to be strengthened into our spirit through the Holy Spirit.**
+---_Eph 3:16, note 6_
 
 ## Ministry Exceprts
 
 **The saints are strong because the word of God is abiding in them (1 John 2:14b)**. When a man has an empty stomach and is hungry, he will surely be weak; there is no possibility that he will be strong. But if he eats, his strength will return, and he will be strong. **For you to be strong today, you need to be fed with the word of God**. Without the word of God, it is impossible for a person to be strong. (_Messages Given to the Working Saints_, p. 58)
 
-[Ephesians 3:] 16 also says that we are strengthened into the inner man. The inner man is our regenerated spirit with God's life as its life. It is our spirit regenerated by the Spirit of God (John 3:6), indwelt by the Spirit of God (Rom. 8:11, 16), and mingled with the Spirit of God (1 Cor. 6:17). **In order to experience Christ unto all the fullness of God, we need to be strengthened into the inner man. This implies that we need to get into our spirit, where we can be strengthened through the Holy Spirit.** It is very difficult to remain in the spirit. We all are accustomed to going out from the spirit, not to going into the spirit and staying there. According to my experience, I can testify that I am not inclined to stay in the spirit. Because it is so easy for me to get out of the spirit, I am still learning to remain in the spirit. **Whenever we stay in the spirit, we are strengthened; but whenever we go out from the spirit, we are weakened**. Have you ever noticed how easy it is for your mind to wander when you are praying? When you are not praying, you may not think of certain things. But when you begin to pray, you may suddenly find your thoughts dwelling on one thing and then another. You may even make a fast trip to another part of the world. This is the reason we need to be strengthened into our inner man. **The more we are strengthened, the more the parts of our inner being are brought back into the spirit, into our inner man.** (_Life-Study of Ephesians_, Chapter 32, Section 2)
+---
+
+[Ephesians 3:]16 also says that we are strengthened into the inner man. The inner man is our regenerated spirit with God's life as its life. It is our spirit regenerated by the Spirit of God (John 3:6), indwelt by the Spirit of God (Rom. 8:11, 16), and mingled with the Spirit of God (1 Cor. 6:17). **In order to experience Christ unto all the fullness of God, we need to be strengthened into the inner man. This implies that we need to get into our spirit, where we can be strengthened through the Holy Spirit.** It is very difficult to remain in the spirit. We all are accustomed to going out from the spirit, not to going into the spirit and staying there. According to my experience, I can testify that I am not inclined to stay in the spirit. Because it is so easy for me to get out of the spirit, I am still learning to remain in the spirit. **Whenever we stay in the spirit, we are strengthened; but whenever we go out from the spirit, we are weakened**. Have you ever noticed how easy it is for your mind to wander when you are praying? When you are not praying, you may not think of certain things. But when you begin to pray, you may suddenly find your thoughts dwelling on one thing and then another. You may even make a fast trip to another part of the world. This is the reason we need to be strengthened into our inner man. **The more we are strengthened, the more the parts of our inner being are brought back into the spirit, into our inner man.** (_Life-Study of Ephesians_, Chapter 32, Section 2)
+
+---
 
 The church life is constituted of those in the pattern of the Apostle Paul. **We all need to follow Paul in receiving the revelation in our spirit and in being strengthened into our inner man**. **When Paul bowed his knees to the Father, he was so strong in his inner man that nothing could shake him or disturb him. Because his whole being was in his spirit, nothing outward could trouble him. We also need to be strengthened to such an extent that nothing will be able to carry us away from our inner man**. Furthermore, we need Christ to make His home in our hearts so that we may be wholly occupied and possessed by Him.
 

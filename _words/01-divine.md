@@ -106,6 +106,8 @@ The Greek word denotes an instant word. **The indwelling Christ as the life-givi
         For I've been kissed by Thee.
 </pre>
     
+---
+
 ### Hymn 841, vv. 1-3, 6 
 
 <pre>
