@@ -2,9 +2,8 @@
 layout: word
 title: Exult
 categories: worshipping
+subheading: "Be beside oneself"
 ---
-
-be beside oneself
 
 ##Scriptures
 

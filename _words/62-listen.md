@@ -2,9 +2,8 @@
 layout: word
 title: Listen
 categories: dealing
+subheaing: Hear
 ---
-
-hear
 
 ##Scriptures
 

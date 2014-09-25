@@ -2,9 +2,8 @@
 layout: word
 title: Rejoice
 categories: worshipping
+subheading: "Delight, Exult, Joy"
 ---
-
-delight, exult, joy
 
 ##Scriptures
 
