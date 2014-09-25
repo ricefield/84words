@@ -2,9 +2,8 @@
 layout: word
 title: Praise
 categories: worshipping
+subheading: "Glory, Celebrate, Adore, Appreciate"
 ---
-
-glory, celebrate, adore, appreciate
 
 ##Scriptures
 

@@ -2,9 +2,8 @@
 layout: word
 title: Bless
 categories: worshipping
+subheading: "Speak well of"
 ---
-
-speak well of
 
 ##Scriptures
 

@@ -2,9 +2,8 @@
 layout: word
 title: Delight
 categories: beholding
+subheading: "Take great pleasure or enjoyment"
 ---
-
-take great pleasure or enjoyment
 
 ##Scriptures
 

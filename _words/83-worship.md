@@ -2,9 +2,8 @@
 layout: word
 title: Worship
 categories: worshipping
+subheading: Extol
 ---
-
-extol
 
 ##Scriptures
 

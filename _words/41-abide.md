@@ -1,11 +1,9 @@
 ---
 layout: word
 title: Abide
-subheading: "dwell and remain"
 categories: beholding
+subheading: "Remain, Stay; Dwell and remain"
 ---
-
-remain, stay
 
 ##Scriptures
 

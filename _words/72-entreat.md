@@ -2,9 +2,8 @@
 layout: word
 title: Entreat
 categories: worshipping
+subheading: "Implore, beseech"
 ---
-
-implore, beseech
 
 ##Scriptures
 

@@ -2,9 +2,8 @@
 layout: word
 title: Touch
 categories: beholding
+subheading: "Contact, Grasp, Handle"
 ---
-
-contact, grasp, handle
 
 ##Scriptures
 

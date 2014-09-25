@@ -2,9 +2,8 @@
 layout: word
 title: Empty
 categories: approaching
+subheading: "Poor, Unloaded"
 ---
-
-poor, unloaded
 
 ##Scriptures
 

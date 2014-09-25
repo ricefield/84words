@@ -2,9 +2,8 @@
 layout: word
 title: Linger
 categories: beholding
+subheading: "Remain"
 ---
-
-remain
 
 ##Scriptures
 

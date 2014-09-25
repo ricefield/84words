@@ -2,9 +2,8 @@
 layout: word
 title: Cry
 categories: assimilating
+subheading: "Desperation, Audible, Loud, Tears"
 ---
-
-desperation, audible, loud, tears
 
 ##Scriptures
 

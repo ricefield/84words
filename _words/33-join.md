@@ -1,11 +1,9 @@
 ---
 layout: word
 title: Join
-subheading: "Joining ourselves to Him"
 categories: beholding
+subheading: "United, Attached, Grafted; Joining ourselves to Him"
 ---
-
-united, attached, grafted
 
 ##Scriptures
 

@@ -2,9 +2,8 @@
 layout: word
 title: Yearn
 categories: worshipping
+subheading: "Earnest strong desire, Long, Feel affection"
 ---
-
-earnest strong desire, long, feel affection
 
 ##Scriptures
 

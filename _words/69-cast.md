@@ -2,9 +2,8 @@
 layout: word
 title: Cast
 categories: dealing
+subheading: Commit
 ---
-
-commit
 
 ##Scriptures
 

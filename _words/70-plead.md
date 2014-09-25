@@ -2,9 +2,8 @@
 layout: word
 title: Plead
 categories: dealing
+subheading: "Plea, Beg, Besought"
 ---
-
-plea, beg, besought
 
 ##Scriptures
 

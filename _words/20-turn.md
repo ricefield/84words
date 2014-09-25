@@ -1,11 +1,9 @@
 ---
 layout: word
 title: Turn
-subheading: Return
 categories: approaching
+subheading: Return
 ---
-
-Return
 
 ##Scriptures
 

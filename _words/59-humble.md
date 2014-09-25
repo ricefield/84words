@@ -2,9 +2,8 @@
 layout: word
 title: Humble
 categories: dealing
+subheading: Lowly
 ---
-
-lowly
 
 ##Scriptures
 

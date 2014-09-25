@@ -1,8 +1,8 @@
 ---
 layout: word
 title: Know
-subheading: "I may know Him"
 categories: assimilating
+subheading: "I may know Him"
 ---
 
 ##Scriptures

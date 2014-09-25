@@ -2,9 +2,8 @@
 layout: word
 title: Cling
 categories: beholding
+subheading: "Hold, Embrace, Cleave"
 ---
-
-hold, embrace, cleave
 
 ##Scriptures
 

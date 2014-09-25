@@ -2,9 +2,8 @@
 layout: word
 title: Petition
 categories: worshipping
+subheading: "Supplicate, Beseech"
 ---
-
-supplicate, beseech
 
 ##Scriptures
 

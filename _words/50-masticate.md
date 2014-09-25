@@ -2,9 +2,8 @@
 layout: word
 title: Masticate
 categories: assimilating
+subheading: "Chew, Ruminate"
 ---
-
-chew, ruminate
 
 ##Scriptures
 

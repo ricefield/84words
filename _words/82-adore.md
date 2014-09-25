@@ -1,11 +1,9 @@
 ---
 layout: word
 title: Adore
-subheading: "Oh come let us adore Him"
 categories: worshipping
+subheading: "Regard with utmost esteem, Love intensely, Pay divine honor; Oh come let us adore Him"
 ---
-
-Regard with utmost esteem, love intensely, pay divine honor
 
 ##Scriptures
 

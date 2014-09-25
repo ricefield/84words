@@ -2,9 +2,8 @@
 layout: word
 title: Keep
 categories: assimilating
+subheading: "Guard, Hold, Fast, Store up"
 ---
-
-guard, hold fast, store up
 
 ##Scriptures
 

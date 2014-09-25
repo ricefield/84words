@@ -2,9 +2,8 @@
 layout: word
 title: Extol
 categories: worshipping
+subheading: "Praise highly, Laud"
 ---
-
-Praise highly, laud
 
 ##Scriptures
 

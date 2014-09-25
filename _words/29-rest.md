@@ -2,9 +2,8 @@
 layout: word
 title: Rest
 categories: beholding
+subheading: Sabbath
 ---
-
-Sabbath
 
 ##Scriptures
 

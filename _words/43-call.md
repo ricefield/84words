@@ -2,9 +2,8 @@
 layout: word
 title: Call
 categories: assimilating
+subheading: "Breathe, Inhale, Invoke"
 ---
-
-breathe, inhale, invoke
 
 ##Scriptures
 

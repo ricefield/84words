@@ -2,9 +2,8 @@
 layout: word
 title: Stop
 categories: approaching
+subheading: "Cease, Silent"
 ---
-
-Cease, silent
 
 ##Scriptures
 

@@ -2,9 +2,8 @@
 layout: word
 title: Choose
 categories: approaching
+subheading: Decide
 ---
-
-decide
 
 ##Scriptures
 

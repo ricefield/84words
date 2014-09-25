@@ -2,9 +2,8 @@
 layout: word
 title: Calm
 categories: approaching
+subheading: "Still, Tranquil"
 ---
-
-still, tranquil
 
 ##Scriptures
 

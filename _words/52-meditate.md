@@ -2,9 +2,8 @@
 layout: word
 title: Meditate
 categories: assimilating
+subheading: "Consider, Ponder, Mind"
 ---
-
-Consider, ponder, mind
 
 ##Scriptures
 

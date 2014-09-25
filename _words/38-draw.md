@@ -2,9 +2,8 @@
 layout: word
 title: Draw
 categories: beholding
+subheading: "Draw near, Come Forward"
 ---
-
-Draw near, Come Forward
 
 ##Scriptures
 

@@ -2,9 +2,8 @@
 layout: word
 title: Offer
 categories: dealing
+subheading: "Consecrate, Vow, Devote, Surrender"
 ---
-
-consecrate, vow, devote, surrender
 
 ##Scriptures
 

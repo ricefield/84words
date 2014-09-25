@@ -2,9 +2,8 @@
 layout: word
 title: Desire
 categories: approaching
+subheading: "Long, Hunger, Thirst, Pant"
 ---
-
-long, hunger, thirst, pant
 
 ## Scriptures
 

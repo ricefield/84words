@@ -2,9 +2,8 @@
 layout: word
 title: Hope
 categories: dealing
+subheading: "Hoping in Him, Daily hope"
 ---
-
-hoping in Him, daily hope
 
 ##Scriptures
 

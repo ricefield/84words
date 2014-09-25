@@ -2,9 +2,8 @@
 layout: word
 title: Digest
 categories: assimilating
+subheading: "Assimilate, Absorb" 
 ---
-
-assimilate, absorb
 
 ##Scriptures
 

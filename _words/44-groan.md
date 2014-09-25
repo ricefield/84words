@@ -2,9 +2,8 @@
 layout: word
 title: Groan
 categories: assimilating
+subheading: Sigh
 ---
-
-sigh
 
 ##Scriptures
 
