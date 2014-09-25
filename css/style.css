@@ -101,6 +101,10 @@ a:hover {
     pointer-events: none;
 }
 
+.category.disabled {
+  color: #d6d6d6;
+}
+
 .word {
     color: #bbbbbb;
     font-family: 'Libre Baskerville', serif;
@@ -111,6 +115,14 @@ a:hover {
 .word a {
     color: grey;
     text-decoration: none;
+}
+
+.word.disabled a {
+  color: #dddddd;
+}
+
+.word.disabled {
+  color: #eeeeee;
 }
 
 .img-rounded {
