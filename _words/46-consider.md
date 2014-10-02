@@ -1,17 +1,21 @@
 ---
 layout: word
 title: Consider
-subheading: "Consider Him"
+subheading: Consider Him
 categories: assimilating
+published: true
 ---
 
 ##Scriptures
 
-**Lev. 11:3 Whatever** has a divided hoof, that is, has its hoof split in two, and **chews the cud among the beasts, that you may eat.**
+**Whatever** has a divided hoof, that is, has its hoof split in two, and **chews the cud among the beasts, that you may eat.**
+---_Lev. 11:3_
 
-**1 Sam. 12:24** Only, fear Jehovah and serve Him in truth with all your heart, **for consider what great things He has done for you** .
+Only, fear Jehovah and serve Him in truth with all your heart, **for consider what great things He has done for you.**
+---_1 Sam. 12:24_
 
-**Psa. 48:9**** We consider, O God, Your lovingkindness** / In the midst of Your temple.
+** We consider, O God, Your lovingkindness** / In the midst of Your temple.
+---_Psa. 48:9_
 
 Psa. 63:6 When I remember You while on my bed, / **When I consider You in the night watches** .
 
@@ -43,29 +47,23 @@ In several verses the writer of Psalm 119 tells us that he mused upon God's word
 
 In [Psalm 119:] 95b the psalmist said, " **I consider Your testimonies." To consider the Word is to think it over very carefully. Concerning this, we may use the word mull. To consider the Word is to mull it over, even to study it and research it** . (_Life-Study of Psalms_, Message 40, p. 461)
 
-**Hymns**
+## Hymns 
 
-_ **Hymn 190** _
+### Hymn 190 
 
-1 O Lord, as we consider Thee,
+1. O Lord, as we consider Thee,
+	We worship Thee for all Thou art;
+	Thou art so rich, so wonderful,
+    So dear and precious to our heart.
 
-We worship Thee for all Thou art;
-
-Thou art so rich, so wonderful,
-
-So dear and precious to our heart.
-
-What Thou art meets our every need!
-
-Our hearts o'erflow with praise to Thee!
-
-All our desires Thou dost exceed
-
-And satisfy continually.
+        What Thou art meets our every need!
+        Our hearts o'erflow with praise to Thee!
+        All our desires Thou dost exceed
+        And satisfy continually.
 
 2Thou art the very God in truth,
 
-The God who is both love and light;
+	The God who is both love and light;
 
 The God who is to us our life,
 
@@ -172,5 +170,3 @@ For the fulfillment of God's purpose
 In the building up of Christ's Body,
 
 In the building up of Your Body.
-
-46 - Consider
