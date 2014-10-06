@@ -2,6 +2,7 @@
 layout: word
 title: Divine
 categories: first
+published: true
 ---
 
 ## Scriptures
@@ -42,9 +43,8 @@ The Greek word denotes an instant word. **The indwelling Christ as the life-givi
 
 **If we enjoy God and partake of the riches of His being, we will be constituted with the divine nature**, becoming the same as God in life and nature but not in the Godhead and expressing Him in all that we are and do. If we partake of God day by day, eventually we will partake of Him unconsciously. We all should be fully saturated with the nature of God. The more we are saturated with God, the more we will express Him. When others contact us, they will see in us the expression of the Triune God. **We may even give off a divine fragrance.**
 
-**The enjoyment of the divine nature is both for the present and for eternity. For eternity we will continue to partake of the divine nature**. This is illustrated by the tree of life and the river of water of life in Revelation 22:1 and 2. The river of life flows out from the throne of God and of the Lamb. This signifies God flowing out to be the enjoyment of His redeemed ones. That flowing river will saturate the entire city of New Jerusalem. Furthermore, the tree of life that grows along the river will supply the redeemed ones with God as their life supply. **This is a picture of what it means to partake of the divine nature**. To eat the fruit of the tree of life is to partake of God's nature; **to be partakers of the divine nature is to be the eaters of the tree of life**. God's nature is holy, loving, righteous, kind, and pure. Actually, God's nature is all-inclusive. **The more we partake of the divine nature, the more we have holiness, love, righteousness, kindness, and all manner of divine attributes**. These attributes then become our virtues, which eventually will consummate in God's glory. We should praise the Lord that we human beings can have God's life, enjoy God's nature, live as God lives, express Him as our godliness, and have all the excellent virtues that will consummate in glory…. **Day after day we must partake of the divine nature, which is the glory. Eventually, this divine nature will glorify us, causing us to shine with God's element. We were made children of God and sons of God in order to be partakers of the divine nature so that we may be glorified with the divine glory (v. 4; Rom. 8:30; Heb. 2:10).**
+**The enjoyment of the divine nature is both for the present and for eternity. For eternity we will continue to partake of the divine nature**. This is illustrated by the tree of life and the river of water of life in Revelation 22:1 and 2. The river of life flows out from the throne of God and of the Lamb. This signifies God flowing out to be the enjoyment of His redeemed ones. That flowing river will saturate the entire city of New Jerusalem. Furthermore, the tree of life that grows along the river will supply the redeemed ones with God as their life supply. **This is a picture of what it means to partake of the divine nature**. To eat the fruit of the tree of life is to partake of God's nature; **to be partakers of the divine nature is to be the eaters of the tree of life**. God's nature is holy, loving, righteous, kind, and pure. Actually, God's nature is all-inclusive. **The more we partake of the divine nature, the more we have holiness, love, righteousness, kindness, and all manner of divine attributes**. These attributes then become our virtues, which eventually will consummate in God's glory. We should praise the Lord that we human beings can have God's life, enjoy God's nature, live as God lives, express Him as our godliness, and have all the excellent virtues that will consummate in glory. We should praise the Lord that we human beings can have God's life, enjoy God's nature, live as God lives, express Him as our godliness, and have all the excellent virtues that will consummate in glory.
 
-**It is a wonderful fact that as believers we possess the divine nature. The way to enlarge the sphere of the divine nature within us is to take the word of Christ not only by reading but also by praying, singing, psalming, and thanking the Lord (Col. 3:16)**. If the word of Christ is to dwell in us richly, we need to open our entire being and exercise our spirit. Then the word of Christ will enter into us, stir us up, and become mingled with us, causing us to be one with the Lord in an actual and practical way. As a result, the sphere of the divine nature in us will be enlarged.
 (_Conclusion of the New Testament_, Message 389, pp. 3936-3937)
 
 ## Hymns
@@ -147,4 +147,3 @@ The Greek word denotes an instant word. **The indwelling Christ as the life-givi
     Thy complete expression
     Glorifying Thee.
 </pre>
-
