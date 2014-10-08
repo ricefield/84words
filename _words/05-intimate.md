@@ -106,17 +106,15 @@ In the Father's presence we not only enjoy grace, the expression of love, but we
     All my heart to Thee I open wide;
     Now set free from all religious duty,
     Only let me in Thyself abide.
-
     As I'm gazing here upon Thy glory,
     Fill my heart with radiancy divine;
     Saturate me, Lord, I now implore Thee,
     Mingle now Thy Spirit, Lord, with mine.
 
-3. My Beloved, come on spices' mountain;
+4. My Beloved, come on spices' mountain;
     How I yearn to see Thee face to face.
     Drink, dear Lord, from my heart's flowing fountain,
     Till I rest fore'er in Thine embrace.
-
     Not alone, O Lord, do I adore Thee,
     But with all the saints as Thy dear Bride;
     Quickly come, our love is waiting for Thee;
