@@ -2,6 +2,7 @@
 layout: word
 title: Intimate
 categories: first
+published: true
 ---
 
 ##Scriptures
@@ -12,18 +13,18 @@ Let him kiss me with **the kisses of his mouth**! / For your love is better than
 And **Jehovah would speak to Moses face to face, just as a man speaks to his companion**. And Moses would return to the camp, but his attendant Joshua the son of Nun, a young man, would not depart out of the tent.
 ---_Exo. 33:11_
 
-My servant Moses is not so; / He is faithful in all My house. 8a With him **I speak face to face**, even openly, and not in riddles; / And he beholds the form of Jehovah.
----_Num. 12:7_
+My servant Moses is not so; / He is faithful in all My house. With him **I speak face to face**, even openly, and not in riddles; / And he beholds the form of Jehovah.
+---_Num. 12:7-8b_
 
-But as it is written, "Things which eye has not seen and ear has not heard and which have not come up in man's heart; **things which God has prepared for those who love Him**." 10 But to us God has revealed them through the Spirit, for the Spirit searches all things, even the depths of God.
----_1 Cor. 2:9_
+But as it is written, "Things which eye has not seen and ear has not heard and which have not come up in man's heart; **things which God has prepared for those who love Him**." But to us God has revealed them through the Spirit, for the Spirit searches all things, even the depths of God.
+---_1 Cor. 2:9-10_
 
 ## Footnotes
 
 Psalms 135—139 were written from different directions to express the sentiments of the psalmists before God. These psalms reveal that the writers were very close to God and were concerned for God's interests. **The psalmists must have been persons who were soaked with God and who were in the divine presence. Only in this way could they have been qualified to write such intimate psalms to the One whom they loved. Like the writers of these psalms, we should aspire to be those who are intimate with God and who live and walk not only in God's presence but even in God Himself** (1 John 4:15-16).
 ---_Psa 135:1, note 2, par. 2_
 
-The kisses of the mouth are the most intimate kisses. This yearning to be kissed by Christ is a response to Christ's cheering love, which is better than wine (v. 2b), and to His charming name (equivalent to His person), which is like ointment (the all-inclusive, compound, life-giving Spirit as the realization of Christ's person—1 Cor. 15:45; Exo. 30:23-25 and note 251) poured forth with the pleasant fragrance of the anointing oils (v. 3a). No one can resist Christ's cheering love and His charming person (cf. Matt. 4:18-20).
+The kisses of the mouth are the most intimate kisses. This yearning to be kissed by Christ is a response to Christ's cheering love, which is better than wine (v. 2b), and to His charming name (equivalent to His person), which is like ointment (the all-inclusive, compound, life-giving Spirit as the realization of Christ's person—1 Cor. 15:45; Exo. 30:23-25 and note 25<sup>1</sup>) poured forth with the pleasant fragrance of the anointing oils (v. 3a). No one can resist Christ's cheering love and His charming person (cf. Matt. 4:18-20).
 
 **According to vv. 2-3, the lover of Christ has obtained a part of Christ's love, but now she yearns for something more intimate. This indicates that the very Christ in whom we believe is personal and affectionate toward us, and that every believer's relationship with Christ must be personal and affectionate** (Mark 16:7 and note; John 13:23; 20:1-17; Gal. 2:20b). After believing in Christ to receive Him as the divine life (John 1:4, 12), we need to love Christ in a personal and affectionate way that we may pursue Him and enjoy Him as our satisfaction (1 Cor. 2:9 and note 3; 1 Tim. 1:14 and note 2).
 ---_S.S. 1:2, note 1_
@@ -39,11 +40,11 @@ Different from taught. To be taught is related to our mind; to have something re
 
 ## Ministry Exceprts
 
-**I have learned from experience how good it is to be intimate with the Lord and one with Him**. Sometimes we should not first speak to Him. We should let the Lord speak first. When He speaks, we should not immediately speak in return. **This means that we and the Lord should be like friends who take time to listen to each other**. Suppose a friend visits you and begins to speak to you about certain things. If you interrupt him and begin to speak about other matters, that would indicate that you do not care for what he is saying. That is not the way for intimate friends to converse together. **The proper way is that your friend talks to you, and you listen. Then, after a period of time, he will give you an opportunity to speak, and he will listen**. It certainly would not be proper for him to do all the talking and then, when he is finished, to say goodbye and leave. He should give you the opportunity to speak to him. This should also be true of our relationship with the Lord (_Life-Study of Exodus,_ Chapter 146).
+**I have learned from experience how good it is to be intimate with the Lord and one with Him**. Sometimes we should not first speak to Him. We should let the Lord speak first. When He speaks, we should not immediately speak in return. **This means that we and the Lord should be like friends who take time to listen to each other**. Suppose a friend visits you and begins to speak to you about certain things. If you interrupt him and begin to speak about other matters, that would indicate that you do not care for what he is saying. That is not the way for intimate friends to converse together. **The proper way is that your friend talks to you, and you listen. Then, after a period of time, he will give you an opportunity to speak, and he will listen**. It certainly would not be proper for him to do all the talking and then, when he is finished, to say goodbye and leave. He should give you the opportunity to speak to him. This should also be true of our relationship with the Lord. (_Life-Study of Exodus,_ msg. 146, pp. 1583-1584)
 
 ---
 
-In the Father's presence we not only enjoy grace, the expression of love, but we also enjoy love itself. **We experience this love in a very intimate way. Because we enjoy the love of God in such an intimate way, we do not want to do anything that displeases the Father**. The Father hates fornication, uncleanness, and lust. If we walk in love, we shall stay away from such things. Because we love the Father, we shall not do anything to grieve His heart. What a tender, delicate walk this is! This is not simply living by grace; it is walking in love. We should always remember that we are children of God enjoying His love. We are saints separated unto Him and saturated with Him. Therefore, in our daily walk **we would always take care of the Father's feeling, for we live intimately in His tender love** (_Life-Study of Ephesians,_ Chapter 50).
+In the Father's presence we not only enjoy grace, the expression of love, but we also enjoy love itself. **We experience this love in a very intimate way. Because we enjoy the love of God in such an intimate way, we do not want to do anything that displeases the Father**. The Father hates fornication, uncleanness, and lust. If we walk in love, we shall stay away from such things. Because we love the Father, we shall not do anything to grieve His heart. What a tender, delicate walk this is! This is not simply living by grace; it is walking in love. We should always remember that we are children of God enjoying His love. We are saints separated unto Him and saturated with Him. Therefore, in our daily walk **we would always take care of the Father's feeling, for we live intimately in His tender love**. (_Life-Study of Ephesians,_ msg. 50, p. 425)
 
 ## Hymns
 
