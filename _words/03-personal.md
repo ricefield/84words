@@ -144,7 +144,7 @@ Because the seeker is full of hunger and thirst, her mouth spontaneously utters,
         I'm in love,
         I'm in love with the most affectionate One.
 
-1. I'm fellowshipping 
+3. I'm fellowshipping 
     in Your love
     And rejoicing
     in You.
