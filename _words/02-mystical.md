@@ -3,12 +3,15 @@ layout: word
 title: Mystical
 categories: first
 subheading: Mysterious
+published: true
 ---
 
 ## Scriptures
 
-Even the Spirit of reality, whom the world cannot receive, because it does not behold Him or know Him; but **you know Him, because He abides with you and shall be in you.** I will not leave you as orphans; I am coming to you. In that day you will know that **I am in My Father, and you in Me, and I in you.**
----_John 14:17-18, 20_
+Even the Spirit of reality, whom the world cannot receive, because it does not behold Him or know Him; but **you know Him, because He abides with you and shall be in you.** I will not leave you as orphans; I am coming to you.---_John 14:17-18_
+
+In that day you will know that **I am in My Father, and you in Me, and I in you.**
+---_John 14:20_
 
 To whom God willed to make known what are **the riches of the glory of this mystery among the Gentiles, which is Christ in you,** the hope of glory,
 ---_Col. 1:27_
@@ -47,15 +50,19 @@ God wanted us to be in Him. If He were merely the Triune God without Christ's hu
 
 Although I was born in China and have become a naturalized American citizen, I can testify that I do not have the feeling that I am either Chinese or American. My realm is not China or America—my realm is the complicated and complicating Triune God. **I am here with the Father, with the Son, who was crucified and resurrected, and with the consummated Spirit. Since I am in such a Triune God, I have whatever I need. If I need crucifixion, I find that in this realm I have been crucified already. If I need resurrection, in this realm I have been resurrected already. Praise the Lord for such a divine and mystical realm!**
 
-If we had been there when the Lord Jesus spoke about believing into God and into Him, we might have said, "Lord, I want to enter into You. Tell me how to believe into You **." As the following verses reveal, for us to enter into Him He had to die and be resurrected to become the life-giving Spirit, that we may receive Him by believing into Him and calling, "O Lord Jesus."** (_The Divine and Mystical Realm_, pp. 40-41)
+(_The Divine and Mystical Realm_, p. 40)
 
 ---
 
-The first Comforter was Christ in the flesh, and the other Comforter is the Spirit of reality. The "He" who is the Spirit of reality in verse 17 becomes the "I" who is the Lord Himself in verse 18. **This means that the Christ who was in the flesh went through death and resurrection to become the life-giving Spirit, the pneumatic Christ. This is not merely spiritual—it is mystical.** We cannot say that the Spirit of reality is spiritual and the Christ who was in the flesh was not spiritual, for when He was in the flesh Christ the Son was surely spiritual. **What we need to see here is not something that is spiritual only but something mystical.**
+We have emphasized that fact that the Triune God is a divine and mystical realm. As revealed in the fist part of John 14, the Son is in the Father, and the Father is in the Son. In verses 16 through 18 we have a word not only concerning the Father and the Son but also concerning th Spirit: "I will ask the Father, and He will give you another Comforter, that He may be with you forever, even the Spirit of reality, whom the world cannot receive, because it does not behold Him or know Him; but you know Him, because He abides with you and shall be in you. I will not leave you as orphans; I am coming to you." The first Comforter was Christ in the flesh, and the other Comforter is the Spirit of reality. The "He" who is the Spirit of reality in verse 17 becomes the "I" who is the Lord Himself in verse 18. **This means that the Christ who was in the flesh went through death and resurrection to become the life-giving Spirit, the pneumatic Christ. This is not merely spiritual—it is mystical.** We cannot say that the Spirit of reality is spiritual and the Christ who was in the flesh was not spiritual, for when He was in the flesh Christ the Son was surely spiritual. **What we need to see here is not something that is spiritual only but something mystical.**
+
+Verse 19 continue, "Yet a little while and the world beholds Me no longer, but you behold Me; because I live, you also shall live." This refers to Christ's resurrection. **Because He lives in resurrection, we also live, for we were regenerated in His resurrection, as revealed in 1 Peter 1:3**.
+
+In John 14:20 the Lord Jesus spoke of "that day." **"That day" was the day of His resurrection (20:19), that day  on which He became the pneumatized Christ, the pneumatic Christ. Hence, _in that day_ actually means "in the resurrection day**."
 
 Let us now read all of [John 14:] 20: "In that day you will know that I am in My Father, and you in Me, and I in you **." This refers to the divine and mystical realm where not only the Father, the Son, and the Spirit are but also where the believers are. Praise the Lord that, as believers in Christ, we are now in the divine, mystical realm of the consummated Spirit and the pneumatic Christ!**
 
-**We all need to enter into the divine and mystical realm, not of the Triune God, but of the consummated Spirit and the pneumatic Christ (Phil. 1:19; Rom. 8:9; 2 Cor. 3:17-18)** (_The Divine and Mystical Realm_, pp. 43b-44)
+(_The Divine and Mystical Realm_, pp. 43-44)
 
 ## Hymns
 
