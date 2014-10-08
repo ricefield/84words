@@ -85,7 +85,7 @@ Because the seeker is full of hunger and thirst, her mouth spontaneously utters,
 
 ---
 
-### The Divine Romance (How Could a Country Girl), v. 4
+### The Divine Romance (How Could a Country Girl), s. 4
 <pre>
 4. Lord, in this close sweet fellowship,  
     Lord, be with me so intimate,  
