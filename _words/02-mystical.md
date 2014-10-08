@@ -48,9 +48,7 @@ We have pointed out that the three of the Divine Trinity are self-existing, ever
 
 God wanted us to be in Him. If He were merely the Triune God without Christ's humanity, death, and resurrection, and we could enter into Him, we would find the Father, the Son, and the Spirit, but nothing of humanity, death, and resurrection. However, **when we enter into the divine and mystical realm of the consummated Spirit and the pneumatic Christ, we have not only divinity but also the humanity of Christ, the death of Christ with its effectiveness, and the resurrection of Christ with its repelling power. Everything is here in this wonderful realm.**
 
-Although I was born in China and have become a naturalized American citizen, I can testify that I do not have the feeling that I am either Chinese or American. My realm is not China or America—my realm is the complicated and complicating Triune God. **I am here with the Father, with the Son, who was crucified and resurrected, and with the consummated Spirit. Since I am in such a Triune God, I have whatever I need. If I need crucifixion, I find that in this realm I have been crucified already. If I need resurrection, in this realm I have been resurrected already. Praise the Lord for such a divine and mystical realm!**
-
-(_The Divine and Mystical Realm_, p. 40)
+Although I was born in China and have become a naturalized American citizen, I can testify that I do not have the feeling that I am either Chinese or American. My realm is not China or America—my realm is the complicated and complicating Triune God. **I am here with the Father, with the Son, who was crucified and resurrected, and with the consummated Spirit. Since I am in such a Triune God, I have whatever I need. If I need crucifixion, I find that in this realm I have been crucified already. If I need resurrection, in this realm I have been resurrected already. Praise the Lord for such a divine and mystical realm!** (_The Divine and Mystical Realm_, p. 40)
 
 ---
 
@@ -60,9 +58,7 @@ Verse 19 continue, "Yet a little while and the world beholds Me no longer, but y
 
 In John 14:20 the Lord Jesus spoke of "that day." **"That day" was the day of His resurrection (20:19), that day  on which He became the pneumatized Christ, the pneumatic Christ. Hence, _in that day_ actually means "in the resurrection day**."
 
-Let us now read all of [John 14:] 20: "In that day you will know that I am in My Father, and you in Me, and I in you **." This refers to the divine and mystical realm where not only the Father, the Son, and the Spirit are but also where the believers are. Praise the Lord that, as believers in Christ, we are now in the divine, mystical realm of the consummated Spirit and the pneumatic Christ!**
-
-(_The Divine and Mystical Realm_, pp. 43-44)
+Let us now read all of [John 14:] 20: "In that day you will know that I am in My Father, and you in Me, and I in you **." This refers to the divine and mystical realm where not only the Father, the Son, and the Spirit are but also where the believers are. Praise the Lord that, as believers in Christ, we are now in the divine, mystical realm of the consummated Spirit and the pneumatic Christ!** (_The Divine and Mystical Realm_, pp. 43-44)
 
 ## Hymns
 
