@@ -2,6 +2,7 @@
 layout: word
 title: Personal
 categories: first
+published: true
 ---
 
 ##Scriptures
@@ -16,7 +17,7 @@ And the Scripture was fulfilled which says, "And Abraham believed God, and it wa
 ---_James 2:23_
 
 And Jehovah would speak to Moses **face to face**, just as a man speaks to **his companion**.
----_Exo 33:11a_
+---_Exo. 33:11a_
 
 When You say, Seek My face, / To You my heart says, **Your face, O Jehovah, will I seek**.
 ---_Psa. 27:8_
@@ -28,11 +29,15 @@ According to vv. 2-3, the lover of Christ has obtained a part of Christ's love, 
 
 ## Ministry Exceprts
 
-Because the seeker is full of hunger and thirst, her mouth spontaneously utters, "Let him kiss me with the kisses of his mouth." She does not say who "him" is. But in her mind, there is only one "him"; it is the One she seeks after. Prior to this, her relationship with the Lord was general, and she was deeply dissatisfied with it. **Now she hopes to have a more personal relationship with Him. Therefore, she longs for a "kiss," which is a personal expression of love. No one can kiss two people at the same time. A kiss is an expression of a personal relationship**. Furthermore, these kisses are not on the cheek, as were Judas's (Matt. 26:49), nor on the feet, as were Mary's (Luke 7:38, 45). They are the "kisses of his mouth," a sign of personal affection. A general relationship can no longer satisfy her. She wants a personal relationship which no one else has. This inward urge is the beginning of all progress. Spiritual edification can never be separated from a pursuit that is based on hunger and thirst. **If the Holy Spirit has not put a real dissatisfaction with a general relationship and a pursuit for personal affection within a believer, he can never expect to have an intimate experience of the Lord**. This pursuit is the basis for all future experience. If we do not have such a hunger and thirst, we will only have a poetic song, and it will not be the Song of Songs. (_The Song of Songs,_ Chapter 1, Section 1)
+Because the seeker is full of hunger and thirst, her mouth spontaneously utters, "Let him kiss me with the kisses of his mouth." She does not say who "him" is. But in her mind, there is only one "him"; it is the One she seeks after. Prior to this, her relationship with the Lord was general, and she was deeply dissatisfied with it. **Now she hopes to have a more personal relationship with Him. Therefore, she longs for a "kiss," which is a personal expression of love. No one can kiss two people at the same time. A kiss is an expression of a personal relationship**. Furthermore, these kisses are not on the cheek, as were Judas's (Matt. 26:49), nor on the feet, as were Mary's (Luke 7:38, 45). They are the "kisses of his mouth," a sign of personal affection. A general relationship can no longer satisfy her. She wants a personal relationship which no one else has. This inward urge is the beginning of all progress. Spiritual edification can never be separated from a pursuit that is based on hunger and thirst. **If the Holy Spirit has not put a real dissatisfaction with a general relationship and a pursuit for personal affection within a believer, he can never expect to have an intimate experience of the Lord**. This pursuit is the basis for all future experience. If we do not have such a hunger and thirst, we will only have a poetic song, and it will not be the Song of Songs. 
+
+(_The Song of Songs,_ p. 12)
 
 ---
 
-**We all need this kind of personal, affectionate, intimate contact with the Lord every day**. This has become my habit. Every morning after rising up I go to my desk and the first thing I say is, "Lord Jesus, I love You." I am not just a poor man praying to a merciful God, but I am **contacting a Savior who is personal and affectionate to me, as I am personal and affectionate to Him**. We all need to take heed to what the seeker says: "Let him kiss me with the kisses of his mouth!" Right away her tone changes: "Your love is better than wine." This is **a** personal, intimate prayer. "Draw me; we will run after you." **This is personal and affectionate**. **We need this kind of personal and affectionate seeking after Him, and we need to build up such a relationship with Him that is so personal and affectionate**. (_Crystallization-Study of Song of Songs,_ Chapter 1, Section 4)
+**We all need this kind of personal, affectionate, intimate contact with the Lord every day**. This has become my habit. Every morning after rising up I go to my desk and the first thing I say is, "Lord Jesus, I love You." I am not just a poor man praying to a merciful God, but I am **contacting a Savior who is personal and affectionate to me, as I am personal and affectionate to Him**. We all need to take heed to what the seeker says: "Let him kiss me with the kisses of his mouth!" Right away her tone changes: "Your love is better than wine." This is a personal, intimate prayer. "Draw me; we will run after you." **This is personal and affectionate**. **We need this kind of personal and affectionate seeking after Him, and we need to build up such a relationship with Him that is so personal and affectionate**. 
+
+(_Crystallization-Study of Song of Songs,_ p. 16)
 
 ## Hymns
 
