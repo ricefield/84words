@@ -43,7 +43,7 @@ Different from taught. To be taught is related to our mind; to have something re
 
 **The Christian who parades all his virtues before men and who does not have anything in the depth of his being has no root; he will not be able to stand in the day of trial and temptation.**
 
-We have been the Lord's children many years; may the Lord open our eyes and show us the extent to which our experiences have been hidden from public view. How much would be left if what is known by man was taken away? **May God work in us so that we can take root downward**. _(The Collected Works of Watchman Nee (Set 2) vol. 37, p.39)
+We have been the Lord's children many years; may the Lord open our eyes and show us the extent to which our experiences have been hidden from public view. How much would be left if what is known by man was taken away? **May God work in us so that we can take root downward**. (_The Collected Works of Watchman Nee_, vol. 37, p.39)
 
 ---
 
