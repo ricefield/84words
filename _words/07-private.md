@@ -51,7 +51,7 @@ Manna is a type of Christ as the heavenly food that enables God's people to go H
 
 ---
 
-We have been the Lord's children many years; may the Lord open our eyes and show us the extent to which our experiences have been hidden from public view. How much would be left if what is known by man was taken away? **May God work in us so that we can take root downward**. _(The Collected Works of Watchman Nee, (Set 2) vol. 37, p. 39)_
+We have been the Lord's children many years; may the Lord open our eyes and show us the extent to which our experiences have been hidden from public view. How much would be left if what is known by man was taken away? **May God work in us so that we can take root downward**. _(The Collected Works of Watchman Nee, vol. 37, p. 39)_
 
 ---
 
